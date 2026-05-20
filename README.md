@@ -1,6 +1,6 @@
-# Manhattan Project 2.0 - UFO Legacy Program
+# Manhattan Project 2.0 - UFO Legacy Program - Goal now is to disclose FULLY this tax-eating government program.
 
-YouTube prograqm <a href="https://youtu.be/jR-h5p2bd-A?list=TLPQMTEwNTIwMjaRJ4fcGKnZGQ">Manhattan Project 2.0</a>.
+YouTube program <a href="https://youtu.be/jR-h5p2bd-A?list=TLPQMTEwNTIwMjaRJ4fcGKnZGQ">Manhattan Project 2.0</a>.
 
 First of it, obviously it's understanding the situation, right? What do we have our hands on? And 
 I've said in some other videos, they took the Manhattan project secrecy and overlaid it on this 
