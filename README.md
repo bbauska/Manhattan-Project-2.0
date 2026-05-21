@@ -699,6 +699,7 @@ out the Atomic Energy Act in 1954, right? And they're basically treating this as
 because it gives off, you know, nuclear radiation. Because if you look at the ultra vague definition 
 of special nuclear material, which is section 51 of the Atomic Energy Act 1954, it says anything that 
 gives off a sizable amount of atomic energy. Literally, that's what it says. Well, what's sizable? 
+
 And what legal gymnastics are you saying this stuff, which is obviously not a well, who knows? Maybe 
 it is a nuclear weapon. And you're saying this is a US nuclear secret. You're transclassifying it 
 into a nuclear secret, which I understand maybe at first why they did that. And I'm not admonishing 
@@ -707,22 +708,25 @@ and we wanted to like lock it down, figure it out, and then see what we're going
 from a novel discussion point on my channel. But I speak often of creative classification loopholes 
 within the DOE that legacy programs enjoy to safeguard UFO activities. One such mclassification is 
 the concept of special nuclear material whose information is inherently covered by restricted data. 
+
 And as David Grus just stated, such a system can be abused to improperly classify UFO materials under 
 extremely strict DOE classification controls, essentially safeguarding UFO materials and information 
 with the same severity as nuclear secrets. Indeed, the 1954 Atomic Energy Agreement section 142 to 
 be specific also gave statutory authority for transclassified foreign nuclear information or TFNI 
 which was given the unique name of TFNI in 2010 under 32 CFR part 2001. Transclassified foreign 
 nuclear information exists as a type of classified information, not inherently a classification 
-level like restricted data and formally restricted data within the DOE. For example, here restricted 
-data may get transclassified out of the restricted data section under section 142 of the 1954 atomic 
-energy agreement. then handled like national security information but still subject to atomic energy 
-protections like exemption from declassification. Essentially TFNI enjoys both the atomic energy 
-commission and executive order classification framework. TFNI is the language used specifically 
-in the Schumer legislation aka the UAPDA where it is explicitly stated UFO legacy programs have 
-mclassified UFO materials, data, files, programs, discoveries, etc. as transclassified foreign 
-nuclear information to utilize the most deep sixed channels of US classification. This is where our 
-section on classification and information control ties into our physical security section. I have 
-spoken numerous times on how DOE classification controls are abused for legacy operations and thus 
+level like restricted data and formally restricted data within the DOE. 
+
+For example, here restricted data may get transclassified out of the restricted data section under 
+section 142 of the 1954 atomic energy agreement. Then handled like national security information but 
+still subject to atomic energy protections like exemption from declassification. Essentially TFNI enjoys 
+both the atomic energy commission and executive order classification framework. TFNI is the language 
+used specifically in the Schumer legislation aka the UAPDA where it is explicitly stated UFO legacy 
+programs have mclassified UFO materials, data, files, programs, discoveries, etc. as transclassified 
+foreign nuclear information to utilize the most deep sixed channels of US classification. 
+
+This is where our section on classification and information control ties into our physical security 
+section. I have spoken numerous times on how DOE classification controls are abused for legacy operations and thus 
 special teams operating under DOE controls are mobilized for legacy activities. These include DOE 
 SRTs or special response teams which are tasked with safeguarding premier DOE NNSA sites like Sandia, 
 Oak Ridge, and Los Alamos. 
