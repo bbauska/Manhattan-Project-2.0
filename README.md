@@ -2,11 +2,11 @@
 
 YouTube program <a href="https://youtu.be/jR-h5p2bd-A?list=TLPQMTEwNTIwMjaRJ4fcGKnZGQ">Manhattan Project 2.0</a>.
 
-First of it, obviously it's understanding the situation, right? What do we have our hands on? And 
-I've said in some other videos, they took the Manhattan project secrecy and overlaid it on this 
-issue because that secrecy worked well for atomic bomb developments. And certainly this whole 
-program in a nutshell, if I were to summarize the 90 plus years of history, it is a reverse 
-engineering program to garner some kind of insight and very few people had that. 
+First of it, obviously it's understanding the situation, right? What do we have our hands on? They 
+took the Manhattan project secrecy and overlaid it on this issue because that secrecy worked well 
+for atomic bomb developments. And certainly this whole program in a nutshell. If I were to summarize 
+the 90 plus years of history, it is a reverse engineering program to garner some kind of insight and 
+very few people had that. 
 
 With top down you could look across the silos and see what was going on. It just became very 
 dysfunctional and they were afraid of people being too crossbriefed into the different silos for 
@@ -18,39 +18,39 @@ We have spent more than $2 billion on the greatest scientific gamble in history 
 But the greatest marvel is not the size of the enterprise, its secrecy or its cost, but the 
 achievement of scientific brains in making it work. 
 
-&gt;&gt; There aren't in fact very many secrets. 
+> There aren't in fact very many secrets. 
 
-&gt;&gt; There aren't secrets about the world of nature. There were secrets about the thoughts and 
+> There aren't secrets about the world of nature. There were secrets about the thoughts and 
 intentions of men. Sometimes they're secrets because a man doesn't like to know what he's up to if 
-he can avoid it. The singular purpose of my channel is to uncover the UFO legacy program 
+he can avoid it. The singular purpose of this channel is to uncover the UFO legacy program 
 architecture, a labyrinthine yet fractured ecosystem of special access, unagnowledged special 
-access, and controlled access programs. that are housed within elements of the United States 
+access, and controlled access programs. That are housed within elements of the United States 
 government, armed forces, and intelligence community that are tasked with the retrieval, 
 collection, storage, exploitation, and derivation of nonhuman technical vehicles and technologies 
 of unknown origin. 
 
 What was once a galvanized and unified effort of the United States most prestigious scientists, 
 general and flag officers, seasoned politicians, and senior statesmen. Established by at least 1947 
-under what we might call the quote unquote Manhattan Project 2.0, know clandestine and covert UFO 
-programs now exist as scattered thiefs. A siloed and viciously compartmentalized system in which 
+under what we might call the quote unquote Manhattan Project 2.0, clandestine and covert UFO 
+programs now exist as scattered thieves. A siloed and viciously compartmentalized system in which 
 several administrative elements now own a piece of the former centralized effort lacking a formal 
 recognized oversight group presiding over all NHI recovery and exploitation activities. 
 
 Indeed, after decades of quite observable cracks showing a loosening and weakening grip of a singular 
 centralized program effort, the golden age of the legacy apparatus appears to have conclusively 
-ended in the early 2000s when according to David Grush, certain contractors, in my informed opinion, 
-Northrup Grumman harnessed company funded research and development aka IRAD to establish breakaway 
+ended in the early 2000s. When, according to David Grusch, certain contractors, in my informed opinion, 
+Northrup Grumman, harnessed company funded research and development aka IRAD to establish breakaway 
 UFO retrieval and exploitation projects that became unaccountable to their original government 
 handler. And finally, complete oversight was lost by 2009 when Vice President Dick Cheney (Darth 
 Cheney), the last man to harness centralized leadership of these activities, left office. 
 
-Whether it be Lieutenant General James Clapper, the closest thing to a Cheneyesque centralized oversight figure 
-while serving as director of national intelligence, Vanavar Bush, who operated as a senior 
-scientific figure during the 1940s and 1950s Manhattan Project 2.0, Mr. Terry Phillips who has 
+Whether it be Lieutenant General James Clapper, the closest thing to a Cheneyesque centralized oversight 
+figure while serving as director of national intelligence. Vanavar Bush, who operated as a senior 
+scientific figure during the 1940s and 1950s Manhattan Project 2.0. Mr. Terry Phillips who has 
 allegedly engaged in reprisals against whistleblowers within Air Force SAP channels and Northrup 
-Grumman or Edward C. Aldrich, who seemingly aided  in the evolution of UFO programs hiding within 
-special access programs during the early 1980s. My work aims to span  decades to analyze not just 
-the individuals but also places, offices, directorates, laws, scandals, etc. that have played an 
+Grumman or Edward C. Aldrich, who seemingly aided in the evolution of UFO programs. Hiding within 
+special access programs during the early 1980s. My work aims to span decades, to analyze not just 
+the individuals, but also places, offices, directorates, laws, scandals, etc. that have played an 
 imperative role within the everchanging and morphing legacy program structure over the decades. 
 
 Thus, I've arrived at a functional ecosystem to represent the modern-day UFO legacy program 
