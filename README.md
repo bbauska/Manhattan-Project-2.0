@@ -84,7 +84,9 @@ aspect of the legacy structure, Defense Industrial-Based Prime Contractors and t
 Only specific personnel within these companies are read into the legacy effort at a functional level, 
 including executive level positions or special program directors. While engineers, scientists, and 
 technicians who actually brush elbows with the programs through carveout contracts are largely kept 
-in the dark. The mortar that binds this structure together. Well, this is the US defense industrial 
+in the dark. The mortar that binds this structure together. 
+
+Well, this is the US defense industrial 
 base whose authoritative channels are often bypassed to allow UFO legacy programs to harness any US 
 military and intelligence asset needed to accomplish these covert mission directives. And finally, 
 and our topic for this new two-part series, the limestone casing that once encapsulated the Great 
@@ -106,7 +108,9 @@ narrative shaping is weaponized to reinforce a strong stigma around the UFO topi
 how this seemingly infinitely layered secrecy apparatus is organized. Because at the end of the day 
 here, covert and highly compartmented waved unagnowledged special access programs, or WOOAPS, 
 facilitating and gatekeeping knowledge and need to know access to the greatest secret in the 
-history of mankind, Which is the presence and procurement of non-human technology and their 
+history of mankind, 
+
+Which is the presence and procurement of non-human technology and their 
 occasional biological operators, existing as a hidden shadow symbiotically attached to the United 
 States government, armed forces, and intelligence community. It would require an ever evolving, 
 impenetrable, and stalwart architecture to stay hidden from even presidents and other elected quote 
@@ -117,7 +121,9 @@ security architecture as an onion. Layers upon layers of secrecy were the center
 core secrets and extent presence of the UFO crash retrieval and exploitation portfolio is always 
 hidden and obscured by another layer of protection and secrecy. This onion analogy can be harnessed 
 to understand so much of the program protection at play here and not just in the modern day, but 
-dating back decades as well as to the inception of this Manhattan Project 2.0. From stripping the 
+dating back decades as well as to the inception of this Manhattan Project 2.0. 
+
+From stripping the 
 Manhattan Project secrecy architecture to classified presidential executive orders under Truman and 
 Eisenhower to the 1954 atomic energy agreements to Cold War special access program expansions and 
 black project oversight reforms to close shave Pentagon audits to the ATIP program perception 
@@ -129,7 +135,9 @@ disgraced Shan Kirkpatrick in his ineffective all-domain anomaly resolution offi
 Every one of these specific instances of program protection and secrecy as well as myriad others over the 
 decades can be seen in reference to layers of this outlined onion. So indeed over the course of 
 this pursuit we will attempt to peel back these layers of embedded secrecy where layers protect 
-layers that obscure core secrets. Analyze security structures behind the early legacy program 
+layers that obscure core secrets. 
+
+Analyze security structures behind the early legacy program 
 effort again also known as the Manhattan Project 2.0. Observe changing laws and oversight 
 regarding black projects and early special access programs during the height of the Cold War. 
 Unveil various program protection agencies and specific personnel that have been deputized and 
@@ -145,7 +153,9 @@ access programs are. How SAPs developed from post World War II to today.
 How additional security and reporting controls can be added to SAPS to restrict readon access and 
 existence acknowledgement. And ultimately study the crossover between the SAP and UFO legacy 
 program ecosystem. And just so we're clear, guys, this project aims to be absolutely massive. 
-Thus, I am tackling this project in two separate parts. So, today we will devote hours towards 
+Thus, I am tackling this project in two separate parts. 
+
+So, today we will devote hours towards 
 analyzing the blanketing of the Manhattan Project secrecy architecture onto early legacy efforts, 
 which we will call the Manhattan Project 2.0. We will follow the Manhattan Project 2.0 throughout 
 the decades during the Cold War. and see how this once centralized and stalwart effort began to 
@@ -176,7 +186,9 @@ But is also structured to be impossible for actual legacy program personnel rele
 compartmentalized activities within the legacy programs to peer across or further down the onion. 
 I think often to an individual who claimed to me that I believe, by the way, to have operated for 
 years on legacy program security for the Navy and a specific FFRDC's operations regarding USO 
-activity. This individual was literally tasked with giving what he referred to as the quote unquote 
+activity. 
+
+This individual was literally tasked with giving what he referred to as the quote unquote 
 onion briefing to specific senior statesmen, general and flag officers, and other relevant special 
 programs personnel. hundreds of times. I will never forget when this person said to me, quote, "I 
 was on the legacy program when I found out there were others." End quote. But I digress. Though 
@@ -198,7 +210,9 @@ referencing the 1933 Magenta Italy crash. Of course, for all intents and purpose
 following 1947's Roswell appears to be when organized and empowered efforts began to collect and 
 exploit these rare and coveted quote unquote exotic technologies. As we will discuss at nauseium 
 today, the early UFO legacy program structure was directly copied from the United States atomic 
-weapons project, the infamous Manhattan project. From compartmentalization, organizational 
+weapons project, the infamous Manhattan project. 
+
+From compartmentalization, organizational 
 architecture, physical security, classification and information control, and political shielding/
 cover. This system of compartmenting covert operations worked so well for the Manhattan Project. It 
 seemingly was directly translated onto a national effort even more secret than the atomic project. 
@@ -221,7 +235,9 @@ that gave custody of recovered UFOs to atomic energy commission go or government
 operated national laboratories that would evolve into modern-day federally funded research and 
 development centers such as Sandia, Los Alamos, Lawrence Livermore, and Oak Ridge. As far as I 
 understand, it was President Dwight D. Eisenhower who conducted the lion's share of establishing 
-the early framework for UFO legacy activities. What we have called and will call throughout today 
+the early framework for UFO legacy activities. 
+
+What we have called and will call throughout today 
 as the Manhattan Project 2.0, such as establishing a covert UFO control group hidden within the 
 National Security Council's 5412 committee. The United States Atomic Energy Commission is responsible 
 to the president and accounts to the Congress principally through the joint committee on Atomic Energy. 
@@ -238,7 +254,9 @@ Oakidge in Tennessee, Argon in Illinois, Los Alamos in New Mexico, and Lawrence 
 California. The secrecy surrounding the programs in the 1950s were exponentially amplified with the 1954 
 atomic energy agreement, which expanded upon the concept of restricted data and a litany of creative 
 classification standards, including transclassified foreign nuclear information, foreign intelligence 
-information, and special nuclear material we will speak on later. They're basically treating this as nuclear 
+information, and special nuclear material we will speak on later. 
+
+They're basically treating this as nuclear 
 secrets because it gives off, you know, nuclear radiation because if you look at the ultra vague definition 
 of special nuclear material, which is section 51 of the Atomic Energy Act of 1954, it says anything that 
 gives off a sizable amount of atomic energy. Literally, that's what it says. Well, what's sizable? And what 
@@ -251,12 +269,16 @@ and relegated to the highest levels of need to know access within the United Sta
 Project 2.0 seems to be a stark contrast to the legacy structure of today in which the legacy glory days once 
 employed some of the United States most prolific scientists, general officers, senior statesmen, etc. While 
 today most individuals involved in the programs are sheep dipped, data masked or the names the populace has 
-never and will never hear of. Lastly today, we will also study the 1970s, 1980s, and onward, in which due to 
+never and will never hear of. 
+
+Lastly today, we will also study the 1970s, 1980s, and onward, in which due to 
 various special access program expansions, oversight reforms, legal molding, and the looming threat of Soviet 
 spycraft, I strongly hypothesized the Manhattan Project 2.0 O began to break itself into pieces, effectively 
 scattering itself into the wind to morph and adapt, hiding within cover programs, leveraging creative funding 
 mechanisms, and amplifying layers of secrecy and security, effectively leading to the siloed program architecture 
-of today and giving rise to the modern-day Onion. Later on down the line, part two of our investigation will 
+of today and giving rise to the modern-day Onion. 
+
+Later on down the line, part two of our investigation will 
 begin moving into the modern era of legacy activities. And we will discuss the concept of unrivaled secrecy 
 and discuss numerous systems and onion layers the UFO legacy program portfolio has harnessed to maintain 
 covert operations, including a broad range of cover offices and programs, specifically within the Air Force, 
@@ -269,7 +291,9 @@ so much more within part two I will additionally seek to propose ose a rough out
 it exists today defining and exploring several layers within the legacy framework. Remember almost everything 
 we discuss in these two parts from cover offices and programs to transclassified foreign nuclear information 
 and special nuclear material as detailed in the 1954 atomic energy agreement to shaving off small amounts of 
-money from a wide swath of programs to fund program activities. Well, these are all layers of the legacy 
+money from a wide swath of programs to fund program activities. 
+
+Well, these are all layers of the legacy 
 structure onion. Though there are a handful of quote unquote major layers I would like to define that I 
 believe are imperative to understanding this security structure. These will include the outermost layer 
 or skin of the onion disinformation and narrative managements. This effort will see us discuss multiple 
@@ -284,7 +308,9 @@ establish a Democratic political candidate Hillary Clinton of course as the disc
 is intriguing about this partial transparency effort is it seems to originate from within the onion 
 itself, specifically from the National Security Council and senior UFO control group individual Lieutenant 
 General James Clapper. Within part two as well as we spoke of in the intro, we will discuss a full overview 
-of the US classification system and special access programs or SAPs. This section will explore how exactly 
+of the US classification system and special access programs or SAPs. 
+
+This section will explore how exactly 
 legacy activities hide within SAPS, the history of SAPS, and how SAPS can become waved and unagnowledged to 
 hide from even the US Congress and temporary employees like presidential administrations. Layers below the 
 special access program model, we will explore program protection agencies in which individuals, directorates 
@@ -299,7 +325,9 @@ and exploitation activities. Some offices here that we will talk about include D
 SAP codes or special access program central offices. The AFOSIPJ or Office of Special Investigations, 
 Office of Special Projects, DARPA SID or Security and Intelligence Directorate, Department of Energy, 
 OICI or Office of Intelligence and Counter Intelligence, an AFL CMC or Air Force Life Cycle Management 
-Center Information Protection Directorate. And finally, we will end our monolithic two-part investigation 
+Center Information Protection Directorate. 
+
+And finally, we will end our monolithic two-part investigation 
 with the subject of quote unquote unrivaled secrecy. Numerous layers between the SAP layer and core legacy 
 secrecy structure within the Onion model that are imperative to the functioning of these covert activities, 
 but may not exactly warrant their own section. 
@@ -361,7 +389,9 @@ see what sort of secrecy systems and program protection strategies from the Manh
 translate on to early UFO legacy activity efforts. And I say this because I personally believe we 
 can observe the formation and maturing of the early UFO legacy program apparatus in a time epoch 
 covering roughly 7 years 1947 to 1954 that ultimately resulted in the Manhattan Project 2.0 that 
-stood stalwart for several decades until the 1980s. So let us review cornerstone concepts, dates, 
+stood stalwart for several decades until the 1980s. 
+
+So let us review cornerstone concepts, dates, 
 individuals, ideas, and more that help solidify the total security and deep sixth nature of the 
 Manhattan Project 2.0. It goes without saying that the Manhattan Project, the R&D program to produce 
 the world's first atomic bombs, operated with a legendary and then unprecedented security apparatus, 
@@ -393,7 +423,7 @@ program, personnel are granted access only to the specific information they need
 duties, even if they hold the necessary clearance level. End quote. Compartmentalization operates 
 as a defensive security mechanism, reducing attack vectors for espionage, leaks, and intrusions. 
 Compartmentalization is the basis for modern-day special access programs, as we will discuss later, 
-with a singular SAP umbrella containing numerous compartmented subcomponents. Granting Oenheimer's 
+with a singular SAP umbrella containing numerous compartmented subcomponents. Granting Oppenheimer's 
 request for a single isolated lab where the bomb could be designed and built, General Groves appropriated 
 the remote school and officially named Oppenheimer scientific director. Oppenheimer's first job was to 
 convince scientists and their families to join him for the duration of the war in a place he was not 
@@ -408,7 +438,9 @@ strengthen program security in the realm of the Manhattan Project 2.0, aka early
 Everyone from David Grush to more controversial figures like Bob Lazar have spoken on compartmentalization 
 within UFO activities. With Bob Lazar infamously discussing how teams studying the propulsion of recovered 
 NHI craft were not able to interface with other scientific teams to share and collaborate on discoveries, 
-oftent times only being able to share information with their immediate lab partner. And to be clear, I 
+oftent times only being able to share information with their immediate lab partner. 
+
+And to be clear, I 
 have stated plenty of times that I am biased towards Lazar, so I do not factor his testimony into my 
 critical analyses. This is just an interesting point by him that many others have spoken on as well. 
 That individual I spoke of in our Onion outline, who served on a naval and specific FFRDC legacy program 
@@ -427,7 +459,9 @@ is not the size of the enterprise, its secrecy or its cost but the achievement o
 making it work. Organizational architecture being weaponized and leveraged for secrecy is a fascinating 
 topic I am so keen to speak on. The Manhattan Project got its name from the Manhattan Engineer District 
 or MED. The Manhattan Engineer District was the US Army Corps of Engineers organization that served as 
-the administrative and organizational entity for the atomic program. During the onset of the Manhattan 
+the administrative and organizational entity for the atomic program. 
+
+During the onset of the Manhattan 
 project, the US Army Corps of Engineers worked in geographic quote unquote districts, the Omaha District, 
 Pittsburgh District, etc. This district apparatus was used to create the Manhattan Engineer District 
 under which the Manhattan Project was conducted, a name that was deliberately mundane and completely 
@@ -439,7 +473,9 @@ personnel security, and the enormous infrastructure required to complete program
 of the program being sequestered to a simple Army Corps of Engineers cover district, Commander Leslie 
 Groves enjoyed unobstructed autonomy to run the Manhattan project. reporting to an extremely short chain 
 of command such as directly to this secretary of war and army chief of staff one general George Marshall 
-and remember him as he is critical to our entire discussion today. This short chain of command allowed 
+and remember him as he is critical to our entire discussion today. 
+
+This short chain of command allowed 
 Groves to aggressively skirt standard acquisition channels and bureaucratic red tape. I wonder if all 
 of this is starting to sound familiar to anyone else. Two projects ago at this point, I published on 
 the quote unquote hidden wing, the Air Force's UFO material exploitation program, whose administrative 
@@ -455,7 +491,9 @@ Ranges. In short, and excuse the technical speak, I do recommend watching that p
 it is still my most important work to date. Day-to-day operations of the hidden wing are conducted on 
 several Air Force major range and test facility bases or MRTFBs. specifically the Edwards 412 test wing, 
 Utah test and training range and Nevada test and training range and features support and material housing 
-from nearby go installations such as Air Force Plant 42. Primary TN or test and evaluation work is conducted 
+from nearby go installations such as Air Force Plant 42. 
+
+Primary TN or test and evaluation work is conducted 
 on the 412th test wing out of Edwards Air Force Base and is primarily run by Air Force Test and Evaluation 
 or AFTTE with day-to-day operations run by AFTC or Air Force Test Center featuring ACE pilots from AFTC's 
 TPS or Test Pilot School. AFTC is an operational element of Air Force Major Command or MAGCOM Air Force 
@@ -491,7 +529,9 @@ Material Command AMC and Air Research and Development Command ARDC respectively.
 Indeed, this ARDC or again Air Research and Development Command also contained another former major command, 
 the AFSWC or Air Force Special Weapons Center, whose Office of Primary Responsibility or OPR ultimately 
 transferred to Air Force Research Lab in 1992. All of the elements I listed above have been historically 
-implicated in legacy program efforts. Specifically here, in 1947, Air Material Command attempted to recruit 
+implicated in legacy program efforts. 
+
+Specifically here, in 1947, Air Material Command attempted to recruit 
 Nazi engineers through Operation Paperclip for a quote unquote underground plant program. Air Force Systems 
 Command, the evolution of Air Research and Development Command, was labeled in the early 1990s by New Mexico 
 State Representative J. Andrew Kner, sort of a mini David Grush prototype as imperative to the original legacy 
@@ -506,7 +546,9 @@ research directorate of the Air Force Special Weapons Center again AFSWC out of 
 which of course co-inhabits land with Sandia National Labs, which will be critical to our investigation 
 today. Indeed, Wang, a figure literally named as leading the reverse engineering effort on Kingman, was 
 also implicated in even earlier cases such as 1948's Aztec New Mexico crash retrieval, a complex and 
-convoluted case that I do believe is a real instance of a UFO crash retrieval. So you see that entire 
+convoluted case that I do believe is a real instance of a UFO crash retrieval. 
+
+So you see that entire 
 fast forward to the modern day within the Air Force and quick time summarizing an enormous part of my 
 work within Air Force major commands in the 1940s, 1950s, and 1960s. And yeah, cut me some slack. I 
 know that was a ton of acronyms, but I discussed that to illustrate how Leslie Grove's work within the 
@@ -520,7 +562,9 @@ ARDC, and the Air Force Special Weapons Center, AFSWC. And if none of this is ma
 recommend watching my Air Force project to learn significantly more there. Outside of the Air Force here, 
 I am thinking specifically of one more former US agency that in my opinion operated dual-handed roles between 
 the Manhattan project and its successor, the UFO Legacy Program Portfolio, weaponizing security architecture 
-to hide UFO retrieval and exploitation activities. And of course, I am talking here of the Armed Forces 
+to hide UFO retrieval and exploitation activities. 
+
+And of course, I am talking here of the Armed Forces 
 Special Weapons Project, AFSWP, not to be confused with the Air Force Special Weapons Center, AFSWC. Back 
 within January of 1947, 29 January 1947 to be exact, Secretary of War Robert P. Patterson and Secretary 
 of the Navy, original accused MJ12 member and likely murder victim James V. Foresttol established the 
@@ -560,7 +604,9 @@ building and safeguarding nuclear weapons, comprehensive and strict physical sec
 necessity. During the Manhattan Project, physical security maintained a permanent presence at three 
 maybe four sites. Los Alamos in Albuquerque, New Mexico, Oak Ridge, and Hanford. As we know from my 
 work, Sandia and Los Alamos, two DOE NNSA national laboratories, are imperative to the modern-day 
-legacy program structure. I have also discussed firstirhand testimony delivered to me about claims of 
+legacy program structure. 
+
+I have also discussed firstirhand testimony delivered to me about claims of 
 underground covert activities, studying the skin of recovered UFOs beneath Oak Ridge amongst the larger 
 Y12 complex. I have a three-hour project explaining why national labs, Sandia in specific, are critical 
 to legacy efforts. But earlier, I made mention of classified presidential executive orders under Truman 
@@ -584,7 +630,9 @@ Commission and its National Laboratories. Of course, featuring support from the 
 Naval Research Lab, and more. This divesting of custody into Goko or again governmentowned contractor 
 operated institutions is exactly what I speak about when referencing in my UFO legacy program pyramid 
 where FFRDC's and go institutions separate program administration and defense industrial-based prime 
-contractors. The federally funded research and development center/government-owned contractor operated 
+contractors. 
+
+The federally funded research and development center/government-owned contractor operated 
 layer of my pyramid is a massive security enforcement layer where government program administrator 
 sponsors/handlers can attract subject matter experts, R&D aces and industry's brightest while still 
 retaining strict handling of program materials, data, files, scope, etc. and most importantly in my 
@@ -631,7 +679,9 @@ work and pencil pushers, scientific parks on the east coast of the continental U
 material exploitation efforts alongside standard research and covert SAP FS literally built into everyday 
 infrastructure we take for granted, like doors in a shopping mall that lead to an underground sprawling 
 covert facility. And I mean that literally. I talked about several similar instances in my video on DUMBs, 
-Deep Underground Military Bases. Where non-descript buildings or offices, sometimes house entrances, to clandestine 
+Deep Underground Military Bases. 
+
+Where non-descript buildings or offices, sometimes house entrances, to clandestine 
 UFO and non-UFO related covert facilities. And I talked about this more in my second Northrup project, where I 
 believe the Tahone radar cross-section facility is made to appear abandoned and derelicted while still 
 housing active underground components focused on UFO recovery and RDT&E. 
@@ -642,7 +692,9 @@ Oak Ridge were heavily guarded, as are several UFO legacy activity sites, but th
 operated literally under our feet in some instances. Take Enrico Fermy and the Chicago Pile 1 for example, 
 the world's first artificial nuclear reactor built in 1942. This work by Fermy was imperative to the 
 Manhattan project, a secret experiment that produced the first self-sustaining chain reaction. Chicago 
-pile 1 was not out in the open like Los Alamos, Oakidge or Hanford. Indeed, Pile 1 was hidden under a 
+pile 1 was not out in the open like Los Alamos, Oakidge or Hanford. 
+
+Indeed, Pile 1 was hidden under a 
 squash court under the stands of Stag Field at the University of Chicago. This project by Enrio Fermy 
 was so secret it was not relayed to the Chicago mayor at the time. Again, I recommend watching my dumb 
 video to learn more. But one thing the Manhattan Project 2.0 took from the Manhattan Project was hiding 
@@ -664,7 +716,9 @@ were granted on a compartmented and need to know basis. During the course of the
 both the Manhattan Project and its immediate successor, the Atomic Energy Commission, founded in 
 1946, developed their own personal security clearance systems separate from DoD and Executive 
 Branch frameworks. These being Q clearance, equivalent to top secret restricted data, and L 
-clearance, equivalent to confidential restricted data. And this is where we must really dig in. The 
+clearance, equivalent to confidential restricted data. 
+
+And this is where we must really dig in. The 
 establishment of the Atomic Energy Commission in 1946 as the successor to the Manhattan Project saw 
 the advent of quote unquote restricted data. If you are curious for more, I do suggest reading the 
 Atomic Energy Act of 1946. An informal practice during the Manhattan Project under Groves was the 
@@ -738,7 +792,9 @@ of DOE SRTs, I have spoken frequently about DOE NNSA Nest or the Nuclear Emergen
 NEST was created under Executive Order 12656 to operate under the primary authority of the 1954 
 Atomic Energy Act. 
 
-NEST was founded as a DOE specialized nuclear emergency organization that assisted the FBI and numerous government agencies by quote providing technical expertise and advice in response to a variety of potential incident threats involving nuclear materials. End quotes. NEST operates as an umbrella organization to handle all nuclear and radiological emergencies for the DOE. NEST mission is to quote be prepared to respond immediately to any type of radiological accident or incident anywhere in the world end. While on the subject of Nest, I hypothesize with near total certainty that Nest was the ground element team dressed in mop or missionoriented protective posture gear that Lance Corporal Jonathan Wagant observed securing a UFO crash site. Just as I hypothesize with near total certainty, one of Nest's core element, the NF- MAP or nuclear forensics material analysis program is a paramount component to crash retrieval programs. I highly suggest you commit to memory. 
+NEST was founded as a DOE specialized nuclear emergency organization that assisted the FBI and numerous government agencies by quote providing technical expertise and advice in response to a variety of potential incident threats involving nuclear materials. End quotes. NEST operates as an umbrella organization to handle all nuclear and radiological emergencies for the DOE. NEST mission is to quote be prepared to respond immediately to any type of radiological accident or incident anywhere in the world end. 
+
+While on the subject of Nest, I hypothesize with near total certainty that Nest was the ground element team dressed in mop or missionoriented protective posture gear that Lance Corporal Jonathan Wagant observed securing a UFO crash site. Just as I hypothesize with near total certainty, one of Nest's core element, the NF- MAP or nuclear forensics material analysis program is a paramount component to crash retrieval programs. I highly suggest you commit to memory. 
 
 Within Nest, NF MAP is tasked to deliver quotes, timely, specific, state-of-the-art forensic results for nuclear materials found outside regulatory control, whether intercepted, discovered, or taken from an undetonated nuclear device. End quote. Essentially, NF MAP operates to answer this question. If nuclear material or a nuclear device were intercepted in the United States, where did it come from? and who was responsible perhaps then it should really be no surprise that nonregulatory and remember that nonregulatory nuclear materials that are collected by Nest and NF MAP are then transported to locations I have accused on numerous occasions as recently as the Sandia project as existing as core legacy program elements including quotes key NNSA facilities Los Alamos National Laboratory and Lawrence Livermore National Laborator labatory, other DOE NSA facilities that participate in the National Nuclear Material Archive Program within NFMAP, Oak Ridge National Laboratory, Pacific Northwest National Laboratory, and Y12 National Security Complex. End quote. 
 
@@ -765,7 +821,9 @@ Manhattan project onto 1946's Atomic Energy Commission. And we can find nearly i
 greater security mechanisms and lockdown classifications by the Manhattan Project 2.0. We can also find modern-day 
 DOE NSA special teams emboldened by the 1954 Atomic Energy Commission agreements. 
 
-The lynchpin for the Manhattan Project 2.0's knows classification structure that in my opinion plays imperative roles in scientific analysis of UFO crash retrievals, transportation of recovered UFOs and their biological occupants, actually retrieving UFOs and safeguarding UFO national laboratory sites. Lastly, here we arrive to another security infrastructure concept copied from the Manhattan Project onto the Manhattan Project 2.0. The political shield/cover. The Manhattan Project saw civilian and political oversight spearheaded by an incredibly small and tight-knit group called the top policy group. The top policy group served as the mechanism through which the president was able to retain control over the Manhattan project while circumnavigating normal government channels to maintain the secrecy of the project. Sound familiar? 
+The lynchpin for the Manhattan Project 2.0's knows classification structure that in my opinion plays imperative roles in scientific analysis of UFO crash retrievals, transportation of recovered UFOs and their biological occupants, actually retrieving UFOs and safeguarding UFO national laboratory sites. Lastly, here we arrive to another security infrastructure concept copied from the Manhattan Project onto the Manhattan Project 2.0. The political shield/cover. 
+
+The Manhattan Project saw civilian and political oversight spearheaded by an incredibly small and tight-knit group called the top policy group. The top policy group served as the mechanism through which the president was able to retain control over the Manhattan project while circumnavigating normal government channels to maintain the secrecy of the project. Sound familiar? 
 
 Initial membership for this group consisted of President FDR who would be replaced by President Truman, Vice President Henry Wallace, Secretary of War Henry Stimson, Army Chief of Staff George Marshall, and again remember that name. Vanavar Bush of the OSRD Office of Scientific Research and Development, and James Con, Bush's deputy. Funny enough, when Truman became FDR's vice president for the 1944 election, he was not briefed into the Manhattan Project and only received a briefing from the top policy group when he took office in 1945. Almost even more comically here, Truman did in fact brush elbows with the Manhattan Project during World War II in his prior capacity as a senator when Truman spearheaded the Truman Committee, a committee reviewing defense programs. Here, Truman witnessed the funneling of millions of dollars into a project labeled expediting production end that featured no further descriptions or explanations on that hastily labeled project. At this time, Truman even approached Stimson for answers. Yet Stimson just told Truman, quote, that the information was classified in order to protect national security. End quote. 
 
@@ -773,9 +831,9 @@ Initial membership for this group consisted of President FDR who would be replac
 
 > As I stated, I believe Truman and Eisenhower laid the foundations for the Manhattan Project 2.0. I am again in full agreement here with former New Mexico State Representative J. Andrew Knissner, that the program coordinator for the fledgling Manhattan Project 2.0 know was relegated to the newly formed in August of 1947 National Security Council. The National Security Council of course is harnessed by the President of the United States for national security, military and foreign policy matters. The NSC, as we will call it for short, originates from within the White House as part of the Executive Office and is composed of senior national security adviserss and presidential cabinet officials. Of course, we cannot speak of 1947 UFO programs and Truman without mention of the enigmatic Majestic 12. I have a full video on the Majestic 12 with the world's best Majestic 12 researcher Ryan S. Wood, so I highly recommend checking that out. I of course believe that Truman establishing the National Security Council as the UFO Legacy Program Coordinating Body stands on its own. But let's briefly discuss that MJ12 connection here. 
 
-I will not waste time explaining what the MJ12 is or its history and evolution. What I can tell you is I believe with confidence that regardless of the documents, a group called MAG12 and MG12 specifically did indeed exist under at least Eisenhower and we will address that shortly. The Eisenhower briefing document stamped 18 November 1952 sought to allegedly brief presidential incumbent General Dwight D. Eisenhower on the Majestic 12 operations as well as origins and modus operandi of this shadowy group. The EBD, as I will call it from here, is the first Majestic 12 document to quote unquote leak and is one I find somewhat convincing due to the authentication work done by the late legend Stanton Freriedman. The EBD contains some rather interesting parallels to actually known events such as the Eisenhower briefing document containing a memorandum for SECDE Secretary of Defense James Foresttol from President Harry Truman himself dated 24th September 1947 discussing the authorization for Foresttol and Bush to proceed with Operation Majestic 12. Of course, in real life, Truman, Foresttol, and Bush did in fact meet on 24th September 1947. And of course, James Foresttol was a key member of the National Security Council from its very inception until 1949 when he died. And Vanavar Bush was a key scientific consultant to the NSC, especially as chairman of the research and development board or RDB. 
+I will not waste time explaining what the MJ12 is or its history and evolution. What I can tell you is I believe with confidence that regardless of the documents, a group called MAG12 and MG12 specifically did indeed exist under at least Eisenhower and we will address that shortly. The Eisenhower briefing document stamped 18 November 1952 sought to allegedly brief presidential incumbent General Dwight D. Eisenhower on the Majestic 12 operations as well as origins and modus operandi of this shadowy group. 
 
-> 
+The EBD, as I will call it from here, is the first Majestic 12 document to quote unquote leak and is one I find somewhat convincing due to the authentication work done by the late legend Stanton Freriedman. The EBD contains some rather interesting parallels to actually known events such as the Eisenhower briefing document containing a memorandum for SECDE Secretary of Defense James Foresttol from President Harry Truman himself dated 24th September 1947 discussing the authorization for Foresttol and Bush to proceed with Operation Majestic 12. Of course, in real life, Truman, Foresttol, and Bush did in fact meet on 24th September 1947. And of course, James Foresttol was a key member of the National Security Council from its very inception until 1949 when he died. And Vanavar Bush was a key scientific consultant to the NSC, especially as chairman of the research and development board or RDB. 
 
 > We can find other interesting parallels around the real life death of Secretary Foresttol who allegedly threw himself out of the window of Bethesda Naval Hospital on 22 May 1949. The EBD here discussed General Walter Bedel Smith being appointed as Foresttoall's replacement after his passing in the Majestic 12 on one August 1950. And of course in Truman's very real daily appointments on one August 1950 we can find an offrecord meeting with General Walter Smith. The EBD details the entirety of the original Majestic 12 team including Forestto/ Smith Admiral Rosco Henencoder the illustrious Dr. Vanavar Bush General Nathan Twining General Hoy Vandenberg Dr. Detlev Bronc Dr. Dr. Jerome Hunaker, Mr. Sydney Sour, Mr. Gordon Gray, Dr. Donald Menel, General Robert H. Montigue, as well as Dr. Lloyd Burkner. Now, I do not know if Truman established the MAG 12, but again, I am quite confident the MAG 12 existed under the Eisenhower administration. Indeed, I understand through a series of classified presidential executive orders or presidential emergency action documents. Again, the acronym PEDs. Like the top policy group under administrations before him, Eisenhower took a similar route and hid this UFO control group, the MAG 12, under the National Security Council's 5412 committee. 
 
@@ -783,7 +841,9 @@ I will not waste time explaining what the MJ12 is or its history and evolution. 
 
 The 5412 committee originally consisted of the deputy under secretary of state, deputy secretary of defense, the president's special assistant for national security affairs, and the director of the CIA serving as the group's action officer. Now, circle back to that Eisenhower briefing document to EBD and see one accused original MJ12 member being Mr. Gordon Gray. At that time, President Truman's assistant secretary of the army. Well, from 1958 to 1961, Gray would also serve as Eisenhower's national security adviser, aka a member of the 5412 committee. I firmly believe the MAG 12 or whatever naming convention it evolved into continued covertly as the control group for the Manhattan Project 2.0 throughout iterations of the 5412 committee such as Nixon's 303 committee before the group ultimately went into a black box or broke apart into siloed containers during the 1980s. However, I do still firmly believe an element of the National Security Council retains oversight of one singular UFO crash retrieval portfolio to this day involving the Department of Energy, Air Force, CIA's Directorate of Science and Technology, and select primes and FFRDC's. 
 
-This, of course, is the legacy program structure the Age of Disclosure was attempting to outline. However, this is not the singular legacy program portfolio. So no, there is no one monolithic program and the age of disclosure conveniently left out the national security council as the program coordinator here. This of course was to protect Lieutenant General James Clapper. This is because whilst director of national intelligence from 2010 to 2017 within the Obama administration, Clapper alongside his principles and deputies including Stephanie O'Sullivan and Michael Dempsey spearheaded the NSC UFO crash retrieval portfolio. And don't just take my word for it here. Listen to David Grush say the same. In fact, without being inappropriate, I will say that General Clapper was well aware of the crash retrieval issue, managed the crash retrieval issue, and when he was the DNI, USDI, and DIA director, he placed people in critical roles  to manage this issue both publicly and I'll just say not non-publicly as well. and I'll allow the audience distill what I'm saying at the at the risk of being inappropriate or going too far with my discussion. So, General Clapper, Stephanie Sullivan, other folks in the IC that are well aware of this issue that were in rooms discussing this issue. I ask you to be greater leaders on this. I should not be the only former military officer and intelligence official that is being completely candid with the information that they were exposed to.
+This, of course, is the legacy program structure the Age of Disclosure was attempting to outline. However, this is not the singular legacy program portfolio. So no, there is no one monolithic program and the age of disclosure conveniently left out the national security council as the program coordinator here. This of course was to protect Lieutenant General James Clapper. This is because whilst director of national intelligence from 2010 to 2017 within the Obama administration, Clapper alongside his principles and deputies including Stephanie O'Sullivan and Michael Dempsey spearheaded the NSC UFO crash retrieval portfolio. 
+
+And don't just take my word for it here. Listen to David Grush say the same. In fact, without being inappropriate, I will say that General Clapper was well aware of the crash retrieval issue, managed the crash retrieval issue, and when he was the DNI, USDI, and DIA director, he placed people in critical roles  to manage this issue both publicly and I'll just say not non-publicly as well. and I'll allow the audience distill what I'm saying at the at the risk of being inappropriate or going too far with my discussion. So, General Clapper, Stephanie Sullivan, other folks in the IC that are well aware of this issue that were in rooms discussing this issue. I ask you to be greater leaders on this. I should not be the only former military officer and intelligence official that is being completely candid with the information that they were exposed to.
 
 > So indeed, this NSSE program portfolio with Clapper gets rather nefarious with Clapper likely blessing the director of the National Special Program Management Staff or NPMS Luis Alzando with top cover for the ATIP program as a way to talk about The Onion outside of The Onion. So, you see, I say all of this because I theorize with near certainty that Truman carried on the legacy of the Manhattan Project's top policy group onto the Manhattan Project 2.0, relegated in 1947 to the newly formed National Security Council. Eisenhower shortly upon taking office effectively quote unquote deepixed the UFO top policy group within the National Security Council by creating the 5412 committee aka the quote unquote special group. The 5412 committee or special group allowed the president and readin program individuals to hide the UFO control group even deeper than the former top policy group. As we will continue to discuss thoroughly, I believe the architecture of the 5412 special group directly leading UFO programs in an operational capacity evolved into a system free from traditional oversight of presidents and quote unquote temporary employees. 
 
@@ -791,13 +851,19 @@ You see, while official National Security Council meetings require full council 
 
 > In the councils of government, we must car guard against the acquisition of unwarranted influence, whether sought or unsought, by the military industrial complex. The potential for the disastrous rise of misplaced power, exists and will persist. We must never let the weight of this combination endanger our liberties or democratic processes. We should take nothing for granted. Only an alert and knowledgeable citizenry can compel the proper meshing of the huge industrial and military machinery of defense with our peaceful methods and goals so that security and liberty may prosper together. Akin to and largely responsible for the sweeping changes in our industrial military posture has been the technological revolution during recent decades. In this revolution re research has become central. It also becomes more formalized complex and costly. 
 
-A steadily increasing share is conducted for by or at the direction of the federal government. Today, the solitary inventor tinkering in his shop has been overshadowed by task forces of scientists. In laboratories and testing fields, in the same fashion, the free university, historically the fountain head of free ideas and scientific discovery, has experienced a revolution in the conduct of research, partly because of the huge costs involved. A government contract becomes virtually a substitute for intellectual curiosity. For every old blackboard, there are now hundreds of new electronic computers. The prospect of domination of the nation's scholars by federal employment, project allocations, and the power of money is ever present and is gravely to be regarded. So to make a hyper long section short, we covered security mechanisms the Manhattan project 2.0 plucked from the Manhattan project and these include compartmentalization, organizational architecture, physical security, classification, and information control. And finally, political shield/co. To summarize this insanely long section, these include legacy operations borrowing directly or conceptually from the Manhattan project to operate on a highly compartmentalized need to know basis establishing unique chains of command hidden in plain sight. 
+A steadily increasing share is conducted for by or at the direction of the federal government. Today, the solitary inventor tinkering in his shop has been overshadowed by task forces of scientists. In laboratories and testing fields, in the same fashion, the free university, historically the fountain head of free ideas and scientific discovery, has experienced a revolution in the conduct of research, partly because of the huge costs involved. A government contract becomes virtually a substitute for intellectual curiosity. For every old blackboard, there are now hundreds of new electronic computers. The prospect of domination of the nation's scholars by federal employment, project allocations, and the power of money is ever present and is gravely to be regarded. 
 
-We can observe in the modern-day Air Force legacy program structure physical security delegating custody of recovered NHI vehicles to modern-day DOE NSA national labs like Sandia, Los Alamos, and Oak Ridge. classification and information control through broad interpretations of the 1946 and 1954 atomic energy acts as well as the implementation of inherited self-imposed classification practices from General Leslie Groves while also using such classifications to empower DOE/NSA special teams such as SRT OST and NEST to operate on the forefront of KONIS based UFO craft crash retrieval missions. And finally, the Manhattan Project 2.0, replicating the Manhattan Project Control Group, the top policy group, this time within the US National Security Council, specifically the 5412 committee, to conduct such covert UFO activities with an extremely small and tight-knit control group. But after all that, let's go ahead and move on because I now want to talk about some possible personnel who moved from the Manhattan Project security apparatus onto the Manhattan Project 2.0. If you got to ask one question to ask someone who is not alive anymore that you feel could answer a lot for you, who would you pick and what would the question be? I would probably ask Sarbacher Oppenheimer and be like, "What was your thought process in the 40s and 50s, you know, scrolling this away?" Hey. I mean, besides overlaying the Manhattan Project secrecy, 
+So to make a hyper long section short, we covered security mechanisms the Manhattan project 2.0 plucked from the Manhattan project and these include compartmentalization, organizational architecture, physical security, classification, and information control. And finally, political shield/co. To summarize this insanely long section, these include legacy operations borrowing directly or conceptually from the Manhattan project to operate on a highly compartmentalized need to know basis establishing unique chains of command hidden in plain sight. 
+
+We can observe in the modern-day Air Force legacy program structure physical security delegating custody of recovered NHI vehicles to modern-day DOE NSA national labs like Sandia, Los Alamos, and Oak Ridge. classification and information control through broad interpretations of the 1946 and 1954 atomic energy acts as well as the implementation of inherited self-imposed classification practices from General Leslie Groves while also using such classifications to empower DOE/NSA special teams such as SRT OST and NEST to operate on the forefront of KONIS based UFO craft crash retrieval missions. 
+
+And finally, the Manhattan Project 2.0, replicating the Manhattan Project Control Group, the top policy group, this time within the US National Security Council, specifically the 5412 committee, to conduct such covert UFO activities with an extremely small and tight-knit control group. But after all that, let's go ahead and move on because I now want to talk about some possible personnel who moved from the Manhattan Project security apparatus onto the Manhattan Project 2.0. If you got to ask one question to ask someone who is not alive anymore that you feel could answer a lot for you, who would you pick and what would the question be? I would probably ask Sarbacher Oppenheimer and be like, "What was your thought process in the 40s and 50s, you know, scrolling this away?" Hey. I mean, besides overlaying the Manhattan Project secrecy, 
 
 > cuz Oppenheimer was the one who created the classification that included the UFO stuff. 
 
-> Oh, all those guys, the guys that were involved in Manhattan were overlaying the same ecosystem of secrecy in some of the same ways to protect stuff that they were protecting our nuclear secrets. I want to spend some time here strengthening my argument that the UFO Legacy Program security control structure, aka the Manhattan Project 2.0, was quite literally ripped from the Manhattan Project. And I want to do this by exploring personnel who likely served pivotal roles shaping covert policy within both of these programs. And I can really think of nowhere better to start than with one of the greatest scientific minds in American history. A man who pioneered the concept of FFRDC's and UARCs through revolutionizing the partnership between government funding and university research. A man who literally spearheaded the American scientific structure through World War II, the Manhattan Project in the early days of the Cold War. and a man who was entrusted with the greatest scientific secrets of the 20th century. This is a man who if I could sit down and have dinner with anyone from history would be near the top of my list. I am talking about the illustrious Dr. Vanavar Bush. 
+> Oh, all those guys, the guys that were involved in Manhattan were overlaying the same ecosystem of secrecy in some of the same ways to protect stuff that they were protecting our nuclear secrets. I want to spend some time here strengthening my argument that the UFO Legacy Program security control structure, aka the Manhattan Project 2.0, was quite literally ripped from the Manhattan Project. And I want to do this by exploring personnel who likely served pivotal roles shaping covert policy within both of these programs. And I can really think of nowhere better to start than with one of the greatest scientific minds in American history. 
+
+A man who pioneered the concept of FFRDC's and UARCs through revolutionizing the partnership between government funding and university research. A man who literally spearheaded the American scientific structure through World War II, the Manhattan Project in the early days of the Cold War. and a man who was entrusted with the greatest scientific secrets of the 20th century. This is a man who if I could sit down and have dinner with anyone from history would be near the top of my list. I am talking about the illustrious Dr. Vanavar Bush. 
 
 > Hello, I'm John Fitch, MIT science reporter. We're at the home of Dr. Vanver Bush in Belmont, Massachusetts. During World War II, Dr. Bush was the organizer, guiding spirit and driving force of our nation's scientific efforts in a global conflict. As director of the office of scientific research and development, he was responsible for mobilizing the forces which produced many of the technological advances that played an important part in the winning of the war. Dr. Bush worked closely with Presidents Roosevelt and Truman and in effect was the first of our scientific adviserss. He shared the enormous responsibility for the development and use of our most fearsome weapon, the atomic bomb. Let's meet Dr. Bush. 
 
@@ -825,11 +891,17 @@ Indeed also recall Bush being a critical member of the top policy group whereas 
 
 > as appointed men usually in the administrative branch the executive branch of government. Scientists and engineers don't run for Congress very much. 
 
-> I will keep things brief here as I could spend an entire video on Bush. But from Rhett Kner's disclosures to the disputed majestic documents to William Steinman's fantastic investigations into the 1948 Aztec New Mexico crash retrieval, Vanavar Bush is almost ubiquitously labeled as the first man to spearhead UFO crash retrieval and reverse engineering operations. With Mr. J. Andrew Kner outright stating that collected nonhuman technical vehicles were processed and analyzed directly under Bush's supervision. Indeed, in regards to Bush and early legacy program secrecy, I am most intrigued here by the statements of Einstein's protege, Dr. Robert Sarbacher. I have spoken about Sarbacher ad nauseium and works prior. So, to get a more well-rounded understanding of Sarbacher and Bush in regards to the Aztec case, go watch my Aztec investigation. In 1950, Canadian government senior radio engineer Wilbur B. Smith wrote to the controller of telecommunications within Canada's Department of Transport, requesting for Canada to begin its first official investigation into UFOs, specifically studying complex magnetism as a form of propulsion. 
+> I will keep things brief here as I could spend an entire video on Bush. But from Rhett Kner's disclosures to the disputed majestic documents to William Steinman's fantastic investigations into the 1948 Aztec New Mexico crash retrieval, Vanavar Bush is almost ubiquitously labeled as the first man to spearhead UFO crash retrieval and reverse engineering operations. With Mr. J. Andrew Kner outright stating that collected nonhuman technical vehicles were processed and analyzed directly under Bush's supervision. Indeed, in regards to Bush and early legacy program secrecy, I am most intrigued here by the statements of Einstein's protege, Dr. Robert Sarbacher. 
 
-This document was classified top secret within Canada's classification structure until 15 September 1969. And fast forward to 1978 where UFO researchers Arthur Bray and Stanton Freeman obtained copies. In this letter, Smith made three astounding claims told to him by a source within Washington regarding UFOs. One, the matter is the most highly classified subject in the United States government, rating even higher than the Hbomb. Two, flying saucers exist. Three, their modus operandi is unknown, but concentrated effort is being made by a small group headed by Dr. Vanavar Bush. And finally four, the entire matter is considered by the United States authorities to be of tremendous significance. This source of Wilbert Smith, well, of course, Dr. Robert Sarbacher, a respected physicist and consultant to the DoD's research and development board in the 1950s under the Truman administration. Indeed, Sarbacher's disclosures from subsequent 1980s interviews between William Steinman and Sarbacher are intriguing to say the least. These interviews invoked the name of a man who self-admitted to attending the 1965 Kexsburg, Pennsylvania UFO crash. 
+I have spoken about Sarbacher ad nauseium and works prior. So, to get a more well-rounded understanding of Sarbacher and Bush in regards to the Aztec case, go watch my Aztec investigation. In 1950, Canadian government senior radio engineer Wilbur B. Smith wrote to the controller of telecommunications within Canada's Department of Transport, requesting for Canada to begin its first official investigation into UFOs, specifically studying complex magnetism as a form of propulsion. 
 
-Dr. Eric A. Walker. And again, go watch that Aztec project for a more comprehensive overview there. Conceptualizing the words of Sarbacher here. And as I state again, it should really be no surprise to recall that Dr. Vanavar Bush was accused of leading the scientific crash recovery team out of the 1948 Aztec New Mexico UFO crash retrieval case. I really won't spend much time here, but 1986's excellent UFO crash at Aztec, a well-kept secret by William Steinman proposed a lengthy argument regarding Bush spearheading this late 1940s crash that I consider to be very real. I think often on David Grush, stating, "There is a subrosa cold war that has been waging for decades between the US and our adversaries, intent on mastering recovered NHI technology. And according to Grush, this obscene security infrastructure was present even in the fledgling years of the Manhattan Project 2.0. got to remember a bulk of this program is done during the cold war and you know we were afraid of Russian spies, Soviet moles and so we made it ultra locked down but to the detriment of national security and there's more. Grush says the United States is not the only country that's encountered NHI and their technology. He says our geopolitical rivals have their own crash retrieval programs which they are also secretly exploiting for military purposes. 
+This document was classified top secret within Canada's classification structure until 15 September 1969. And fast forward to 1978 where UFO researchers Arthur Bray and Stanton Freeman obtained copies. In this letter, Smith made three astounding claims told to him by a source within Washington regarding UFOs. One, the matter is the most highly classified subject in the United States government, rating even higher than the Hbomb. Two, flying saucers exist. 
+
+Three, their modus operandi is unknown, but concentrated effort is being made by a small group headed by Dr. Vanavar Bush. And finally four, the entire matter is considered by the United States authorities to be of tremendous significance. This source of Wilbert Smith, well, of course, Dr. Robert Sarbacher, a respected physicist and consultant to the DoD's research and development board in the 1950s under the Truman administration. Indeed, Sarbacher's disclosures from subsequent 1980s interviews between William Steinman and Sarbacher are intriguing to say the least. These interviews invoked the name of a man who self-admitted to attending the 1965 Kexsburg, Pennsylvania UFO crash. 
+
+Dr. Eric A. Walker. And again, go watch that Aztec project for a more comprehensive overview there. Conceptualizing the words of Sarbacher here. And as I state again, it should really be no surprise to recall that Dr. Vanavar Bush was accused of leading the scientific crash recovery team out of the 1948 Aztec New Mexico UFO crash retrieval case. I really won't spend much time here, but 1986's excellent UFO crash at Aztec, a well-kept secret by William Steinman proposed a lengthy argument regarding Bush spearheading this late 1940s crash that I consider to be very real. I think often on David Grush, stating, "There is a subrosa cold war that has been waging for decades between the US and our adversaries, intent on mastering recovered NHI technology. 
+
+And according to Grush, this obscene security infrastructure was present even in the fledgling years of the Manhattan Project 2.0. got to remember a bulk of this program is done during the cold war and you know we were afraid of Russian spies, Soviet moles and so we made it ultra locked down but to the detriment of national security and there's more. Grush says the United States is not the only country that's encountered NHI and their technology. He says our geopolitical rivals have their own crash retrieval programs which they are also secretly exploiting for military purposes. 
 
 > We're in a competition with their adversaries to understand this. And it's a it's a multi-deade cold war that has been under our nose for so long. 
 
@@ -847,21 +919,29 @@ Dr. Eric A. Walker. And again, go watch that Aztec project for a more comprehens
 
 > I need to waste no time here introducing Oppenheimer and I won't since our investigation is already so robust. And if you aren't super familiar with Oppenheimer, I recommend pausing and going to watch the 2023 masterpiece that is Christopher Nolan's Oppenheimer. And even if you have watched that movie, I recommend watching it again with our project today in mind. It is an incredible watch. Trust me. Following the atomic bomb project, Oenheimer was mentioned frequently throughout the 1980s as a critical scientific member to 1940s and 1950s UFO crash retrieval operations. And it seems that David Grush himself shares this sentiment. I would probably ask Sarbacher Oenheimer and be like, "What was your thought process in the 40s and 50s, you know, scrolling this away?" Hey, I mean besides overlaying the Manhattan Project secrecy. 
 
-> Indeed, in communications with William Steyman in 1983, the man who we just discussed as categorically stating Vanavar Bush's involvement in the Manhattan Project 2.0, Dr. Robert Sarbacher would state he was aware Dr. John Vonoman was definitely involved in 1940s and 1950s crash retrieval programs and that he strongly theorized Dr. Robert Oppenheimer was also just 3 years after Sharbacher's comments. Steinman would publish his magnumopus UFO crash at Aztec, a well-kept secret. This coveted book is the definitive exploration into the 1948 Aztec case alongside the work of Scott and Suzanne Ramsay. Steinman here did some truly incredible work, including chasing down the storied Mr. G's an amalgamation of scientists who disclose knowledge of crash retrievals to key figures to the Aztec case, Mr. Silus Newton and Leo Jabau. And that's not even half of it. The Aztec case is so intriguing and convoluted, I do recommend going to watch that video. Now, within the book, Steinman detailed the Aztec saucer recovery scientific team members. This team was of course helmed by Dr. Vanavar Bush featured three original accused Majestic 12 members including Dr. Detlev Wolf Bronc, Dr. Lloyd Burkner, and Dr. Jerome Hunaker. 
+> Indeed, in communications with William Steyman in 1983, the man who we just discussed as categorically stating Vanavar Bush's involvement in the Manhattan Project 2.0, Dr. Robert Sarbacher would state he was aware Dr. John Vonoman was definitely involved in 1940s and 1950s crash retrieval programs and that he strongly theorized Dr. Robert Oppenheimer was also just 3 years after Sharbacher's comments. Steinman would publish his magnumopus UFO crash at Aztec, a well-kept secret. 
+
+This coveted book is the definitive exploration into the 1948 Aztec case alongside the work of Scott and Suzanne Ramsay. Steinman here did some truly incredible work, including chasing down the storied Mr. G's an amalgamation of scientists who disclose knowledge of crash retrievals to key figures to the Aztec case, Mr. Silus Newton and Leo Jabau. And that's not even half of it. The Aztec case is so intriguing and convoluted, I do recommend going to watch that video. Now, within the book, Steinman detailed the Aztec saucer recovery scientific team members. This team was of course helmed by Dr. Vanavar Bush featured three original accused Majestic 12 members including Dr. Detlev Wolf Bronc, Dr. Lloyd Burkner, and Dr. Jerome Hunaker. 
 
 Also on the team was one Dr. Carl A. Highland. In my opinion, a possible lynchpin to this case, Dr. John Vonoman and Dr. J. Robert Oppenheimer. But just hold on a second here. Before we can take this and run with it, I have openly stated my frustration. Steinman did not meticulously detail his work in sources to reveal under what grounds he arrived at this scientific team roster. His most concrete name here is Dr. Carl Highland, who did resurface with the Syos Newton and Leo Jabau drama on the Aztec case, specifically within Colorado court records, where Highland appeared to be forced as a hostile witness to improperly label Gabau and Newton as conmen. Indeed, perhaps Steinman reached this Oenheimer conclusion from his communications with Sarbacher. or perhaps as one of the leading figures to reveal this office through FOYA. Steinman learned of Oenheimer's involvement from the quote unquote leaked interplanetary phenomenon unit reports. 
 
-But before we move on to the IPU real fast, as we discussed earlier, Oppenheimer also voiced concerns regarding Grove's Manhattan Project secrecy apparatus actually hindering overall scientific progress. One must wonder if Oppenheimer really did engage with the Manhattan Project 2.0 in the 40s and 50s. If he shared similar concerns, that the compartmentalization and secrecy surrounding the hiding of non-human intelligence hindered both scientific progress and rightful human understanding. This is total speculation here. I do not have any strong theory with supporting evidence. But remember back to the video's introduction where Oppenheimer commented on secrets not existing in nature but within the hearts of men. If Oppenheimer operated on the Manhattan Project 2.0, perhaps like the atomic project before, he became disenfranchised with the total secrecy, compartmentalization, and need to know access of the legacy programs. 
+But before we move on to the IPU real fast, as we discussed earlier, Oppenheimer also voiced concerns regarding Grove's Manhattan Project secrecy apparatus actually hindering overall scientific progress. One must wonder if Oppenheimer really did engage with the Manhattan Project 2.0 in the 40s and 50s. If he shared similar concerns, that the compartmentalization and secrecy surrounding the hiding of non-human intelligence hindered both scientific progress and rightful human understanding. 
+
+This is total speculation here. I do not have any strong theory with supporting evidence. But remember back to the video's introduction where Oppenheimer commented on secrets not existing in nature but within the hearts of men. If Oppenheimer operated on the Manhattan Project 2.0, perhaps like the atomic project before, he became disenfranchised with the total secrecy, compartmentalization, and need to know access of the legacy programs. 
 
 Maybe, just maybe, there are parallels here to the Atomic Energy Commission stripping Oenheimer's clearance in 1954 in a kangaroo court mastermind by Lewis Straws. Maybe, just maybe, there was a need to remove Oenheimer from the UFO Legacy Program portfolio. But back to that interplanetary phenomenon unit I just mentioned. I have discussed this group several times before and covered in great detail the two allegedly leaked reports from this group. The IPU was revealed through several foyer pursuits by UFO researchers including Steinman and though shadowed in secrecy, there are several facts we know for certain about the IPU. The Army confirmed with the Army Department of Counter Intelligence there was in fact an interplanetary phenomenon unit or IPU. The IPU was disestablished in the late 1950s. The IPU records were surrendered to the Air Force AFOSI in conjunction with Project Blue Book, confirming that the IPU dealt with the UFO phenomenon. 
 
-The unit was a quote unquote in-house project as an interest item for an unnamed assistant chief of staffer intelligence. The unit lacked formal function, mission, or authority. It is only through quote unquote institutional memory that the Army even knows of the IPU's existence. Debates wager on to this day about the existence of the IPU with some individuals claiming this unit was simply the input processing unit of the Army's mail room. While of course others claim there was a purposeful attempt to destroy records and hide the very real interplanetary phenomenon unit. Now, according to Foya, the IPU was an in-house project for an unnamed Army Assistant Chief of Staff for Intelligence, aka a G2. However, according to several researchers such as Ryan and the late Dr. Robert Woods, the G2 position in reference to the IPU was actually a compartmented office from which the IPU was conducted with real IPU leadership being General George C. Marshall, Chief of Staff of the Army from 1939 to 1945, Secretary of State from 1947 to 1949, and Secretary of Defense from 1950 to 1951. 
+The unit was a quote unquote in-house project as an interest item for an unnamed assistant chief of staffer intelligence. The unit lacked formal function, mission, or authority. It is only through quote unquote institutional memory that the Army even knows of the IPU's existence. Debates wager on to this day about the existence of the IPU with some individuals claiming this unit was simply the input processing unit of the Army's mail room. 
+
+While of course others claim there was a purposeful attempt to destroy records and hide the very real interplanetary phenomenon unit. Now, according to Foya, the IPU was an in-house project for an unnamed Army Assistant Chief of Staff for Intelligence, aka a G2. However, according to several researchers such as Ryan and the late Dr. Robert Woods, the G2 position in reference to the IPU was actually a compartmented office from which the IPU was conducted with real IPU leadership being General George C. Marshall, Chief of Staff of the Army from 1939 to 1945, Secretary of State from 1947 to 1949, and Secretary of Defense from 1950 to 1951. 
 
 And before we go any further, just conceptually, this makes sense. Think back to the top policy group. If, as we talk about, George C. Marshall did indeed lead the IPU or a similar UFO crash retrieval group, it would make sense to put compartmented leadership of the office within a subordinate office, effectively removing himself from chain of command. Perhaps this should come as no surprise, seeing as Marshall is all over the alleged Majestic 12 documents, including a 5 March 1942 memo allegedly from Marshall to Franklin D. Roosevelt discussing the recovery of an unidentified airplane following the infamous 1942 Battle of Los Angeles. Marshall says in this disputed document, the craft was likely of quote unquote interplanetary origin and suggested a special intelligence unit be created to further investigate the phenomenon. 
 
 Marshall is also featured in the alleged IPU report leaked alongside some of the majestic documents. Take the IPU report dated 22 July 1947 for example. This alleged IPU report states George C. Marshall, then Secretary of State, was the only cabinet member to know of the crashed UFOs, but that sectdeaf James Foresttoall would be briefed on certain aspects. Of course, in MJ12 lore like we talked about, more appropriately, Match 12 lore, Truman and Foresttol engaged in September of 1947 meetings to establish the Match 12. The IPU report also states select scientists from the Atomic Energy Commission were amongst this UFO crash retrieval team, including Dr. Robert Oppenheimer. Intriguing here to me is mention of one Colonel Housebrook of the Armed Forces Special Weapons Project, AFSWP, who according to the reports ordered a special radiobiological team accompanied by a said SED and a security detail from Sandia National Labs to secure the immediate area surrounding the Roswell crash site. 
 
-As it turns out, Colonel Sherman V. Housebrook was indeed a very real army colonel who even served as a high-ranking member in postworld war II nuclear programs and even worked closely with Leslie Groves again the US Army Corps of Engineer officer who oversaw the construction of the Pentagon and directed the Manhattan project and Colonel Housebrook did indeed aid in fleshing out the AFSWP we talked about earlier in relation to the Manhattan Project 2.0 no plucking administrative architecture from the Manhattan project. Indeed, in that same frame of reference, the accused said under Colonel Housebrook for UFO retrievalss, well, this is what's known as a special engineer detachment, a Manhattan Project artifact. In 1943, the Manhattan Engineer District established SDS, an army unit designation for military personnel with scientific and technical backgrounds who were assigned to work on the Manhattan project alongside civilian scientists. Saids worked at critical Manhattan project sites, including Los Alamos, Z division at Sandia Base, Oakidge, etc. Following the Manhattan project as it transitioned onto the atomic energy commission, most said personnel served prominent careers in physics, engineering, and academia. Rather intriguing, this IPU doc would discuss said being an imperative on-site unit alongside scientific personnel at UFO crash sites. 
+As it turns out, Colonel Sherman V. Housebrook was indeed a very real army colonel who even served as a high-ranking member in postworld war II nuclear programs and even worked closely with Leslie Groves again the US Army Corps of Engineer officer who oversaw the construction of the Pentagon and directed the Manhattan project and Colonel Housebrook did indeed aid in fleshing out the AFSWP we talked about earlier in relation to the Manhattan Project 2.0 no plucking administrative architecture from the Manhattan project. Indeed, in that same frame of reference, the accused said under Colonel Housebrook for UFO retrievalss, well, this is what's known as a special engineer detachment, a Manhattan Project artifact. 
+
+In 1943, the Manhattan Engineer District established SDS, an army unit designation for military personnel with scientific and technical backgrounds who were assigned to work on the Manhattan project alongside civilian scientists. Saids worked at critical Manhattan project sites, including Los Alamos, Z division at Sandia Base, Oakidge, etc. Following the Manhattan project as it transitioned onto the atomic energy commission, most said personnel served prominent careers in physics, engineering, and academia. Rather intriguing, this IPU doc would discuss said being an imperative on-site unit alongside scientific personnel at UFO crash sites. 
 
 > What President Truman presented Marshall with the distinguished service medal in 1945. He said that although millions gave America extraordinary service, Marshall gave it victory. 
 
@@ -873,13 +953,46 @@ As it turns out, Colonel Sherman V. Housebrook was indeed a very real army colon
 
 The ALSOS mission was a littleknown intelligence operation conducted in Europe by the Manhattan Engineer District to learn firsthand how close Germany was to developing its own atomic weapons. To quote the Atomic Heritage Foundation, quote, "Under the command of General Leslie Groves, these operations succeeded in capturing most of the key German scientists, stores of uranium ore, and other nuclear raw materials, and thousands of research documents regarding the development of atomic energy." End quote. The US considered it critical to gather intelligence on progress made, if any, within the Germans atomic weapons program. However, a unique problem presented itself. The secrecy surrounding the Manhattan project was so robust, military intelligence could not be briefed into anything regarding atomic energy. 
 
-Thus, military intelligence was fully unequipped to analyze German atomic progress. General Marshall, of course, found a solution in 1943, suggesting a separate intelligence operation under the umbrella of the Manhattan Engineer District to be established, the ALSOS missions. These missions were overseen by who else but General Leslie Groves, General George Marshall and his G2 at the time, Colonel Boris Pash and Dr. Vanavar Bush. So, as we go forward, just remember at this time, General Marshall was fully prepared to utilize his G2 for covert and unnowledged missions. Alo was conducted in three phases with an original detachment consisting of 13 military personnel including interpreters and five scientists. 
+Thus, military intelligence was fully unequipped to analyze German atomic progress. General Marshall, of course, found 
+a solution in 1943, suggesting a separate intelligence operation under the umbrella of the Manhattan Engineer District 
+to be established, the ALSOS missions. These missions were overseen by who else but General Leslie Groves, General 
+George Marshall and his G2 at the time, Colonel Boris Pash and Dr. Vanavar Bush. So, as we go forward, just remember 
+at this time, General Marshall was fully prepared to utilize his G2 for covert and unnowledged missions. Alo was conducted 
+in three phases with an original detachment consisting of 13 military personnel including interpreters and five scientists. 
 
-Phase one of ALSOS saw operations in Italy whose objective was to quote obtain advanced information regarding scientific development in enemy research and development and to secure all important persons laboratories and scientific information immediately upon their becoming available. end quote. Phase 2 of ALSOS in France operated to quote begin the awesome task of searching for the German scientists, capturing any nuclear related materials such as uranium and heavy water and locating and deciphering any related scientific documents. End quote. Finally, phase 3 of ALSOS in Germany was executed near the tail end of World War II when it was widely known the Nazis did not have a successful atomic program. Phase 3 continued to secure Nazi personnel, facilities, research, etc. with the expressed mission to allow none of Germany's nuclear materials and absolutely none of the German scientists to be allowed to fall into Soviet hands. 
+Phase one of ALSOS saw operations in Italy whose objective was to quote obtain advanced information regarding scientific 
+development in enemy research and development and to secure all important persons laboratories and scientific information 
+immediately upon their becoming available. end quote. Phase 2 of ALSOS in France operated to quote begin the awesome task 
+of searching for the German scientists, capturing any nuclear related materials such as uranium and heavy water and 
+locating and deciphering any related scientific documents. End quote. Finally, phase 3 of ALSOS in Germany was executed 
+near the tail end of World War II when it was widely known the Nazis did not have a successful atomic program. Phase 3 
+continued to secure Nazi personnel, facilities, research, etc. with the expressed mission to allow none of Germany's 
+nuclear materials and absolutely none of the German scientists to be allowed to fall into Soviet hands. 
 
-Also, Manhattan's intelligence operation to identify and secure facilities, personnel, research materials, etc. regarding the world's then greatest secret was a resounding success. This sounds an awful lot like the intelligence apparatus behind UFO crash retrieval teams, does it not? Being able to secure UFOs under total secrecy with zero interference from traditional military and intelligence channels in competition with adversarial teams. Intriguing how Marshall seemed to establish this quote unquote rapid recovery apparatus. What is even more intriguing here is this. If ALSOS contains small teams mostly specializing in intelligence and science, how did they forcefully secure atomic infrastructure? Well, let's go ahead and meet the Tforce, an operational arm of the World War II Supreme Headquarters Allied Expeditionary Force tasked with operating on the front lines, securing German scientists, scientific and industrial technology, laboratories, facilities, etc. before they could be destroyed in a scorched earth effort by retreating Nazis or seized by Soviets. Tforce was ordered to quote identify, secure, guard, and exploit valuable and special information, including documents, equipment, and persons of value to Allied armies. End quotes. T forces were lightly armed, extremely mobile, deployed rapidly, and secured a site for special investigators to move in and exploit what had been captured of Nazi infrastructure. And these special teams, that's right, of course, the ALSOS missions teams. 
+Also, Manhattan's intelligence operation to identify and secure facilities, personnel, research materials, etc. regarding 
+the world's then greatest secret was a resounding success. This sounds an awful lot like the intelligence apparatus behind 
+UFO crash retrieval teams, does it not? Being able to secure UFOs under total secrecy with zero interference from traditional 
+military and intelligence channels in competition with adversarial teams. Intriguing how Marshall seemed to establish this 
+quote unquote rapid recovery apparatus. What is even more intriguing here is this. If ALSOS contains small teams mostly 
+specializing in intelligence and science, how did they forcefully secure atomic infrastructure? 
 
-For the ALSOS missions, T forces captured a subcritical experimental nuclear reactor, uranium ingots, heavy water, and several dozen atomic scientists in their staffs, including the infamous Wernern Heisenberg. This seizing of scientists was often done in a heavy-handed method. Quote, "Their methods had echoes of the Gestapo, kidnapping at night by state officials who offered no evidence of identity." End quote. Indeed, for the ALSOS missions, T forces even captured Nazi atomic materials processing plants within Soviet control territory. So, you see, the Manhattan Project not only laid out the secrecy apparatus for the entire security and secrecy structure behind the Manhattan Project 2.0, which one could strongly argue was infinitely more secret than the Atomic Project. But the Manhattan project also saw the direct blueprints laid by General Marshall for rapid reaction UFO recovery teams often compartmented or hid within offices like Marshall's G2. 
+Well, let's go ahead and meet the Tforce, an operational arm of the World War II Supreme Headquarters Allied Expeditionary 
+Force tasked with operating on the front lines, securing German scientists, scientific and industrial technology, laboratories, 
+facilities, etc. before they could be destroyed in a scorched earth effort by retreating Nazis or seized by Soviets. Tforce 
+was ordered to quote identify, secure, guard, and exploit valuable and special information, including documents, equipment, 
+and persons of value to Allied armies. End quotes. T forces were lightly armed, extremely mobile, deployed rapidly, 
+and secured a site for special investigators to move in and exploit what had been captured of Nazi infrastructure. And 
+these special teams, that's right, of course, the ALSOS missions teams. 
+
+For the ALSOS missions, T forces captured a subcritical experimental nuclear reactor, uranium ingots, heavy water, 
+and several dozen atomic scientists in their staffs, including the infamous Wernern Heisenberg. This seizing of scientists 
+was often done in a heavy-handed method. Quote, "Their methods had echoes of the Gestapo, kidnapping at night by state 
+officials who offered no evidence of identity." End quote. Indeed, for the ALSOS missions, T forces even captured Nazi 
+atomic materials processing plants within Soviet control territory. So, you see, the Manhattan Project not only laid 
+out the secrecy apparatus for the entire security and secrecy structure behind the Manhattan Project 2.0, which one 
+could strongly argue was infinitely more secret than the Atomic Project. But the Manhattan project also saw the direct 
+blueprints laid by General Marshall for rapid reaction UFO recovery teams often compartmented or hid within offices 
+like Marshall's G2. 
 
 The ALOS and Tforce directly mirror the UFO recovery teams of today. a highly mobile light direct action team, 
 oftent times parallel tier 1 elements who can secure a UFO crash site until a highly specialized scientific team, 
@@ -892,9 +1005,30 @@ UFO legacy program efforts. The two most critical figures to this discussion tha
 the very skeleton for the compartmented and need to know secrecy architecture behind UFO legacy programs are Dr. 
 Vannevar Bush and General George C. Marshall. 
 
-And of course, I must give a huge shout out to General Leslie Groves for outlining the conceptual blueprint for this security architecture. There are myriad more Manhattan Project scientists, military officials, and more that likely moved onto the Manhattan Project 2.0 from the Atomic Project, but really fall outside of our scope of work today, specifically analyzing the security architecture, such as possibly Dr. Edward Teller, father of the hydrogen bomb, who allegedly got Bobasar hired at S4 under EG&G. Perhaps we will revisit these names and numerous more in the future. As I state oh so often, the UFO legacy program structure of today and the onion of secrecy exists in a fragmented shell of itself, far removed from the golden age we just spent 2 hours speaking about. In my understanding, in the modern day, the head of the legacy pyramid, which is the UFO control group, has sat empty since the departure of Vice President Dick Cheney in 2009. with the closest quote unquote mob boss being DNI James Clapper from 2010 to 2017. 
+And of course, I must give a huge shout out to General Leslie Groves for outlining the conceptual blueprint for this 
+security architecture. There are myriad more Manhattan Project scientists, military officials, and more that likely 
+moved onto the Manhattan Project 2.0 from the Atomic Project, but really fall outside of our scope of work today, 
+specifically analyzing the security architecture, such as possibly Dr. Edward Teller, father of the hydrogen bomb, 
+who allegedly got Bobasar hired at S4 under EG&G. Perhaps we will revisit these names and numerous more in the future. 
 
-Although Clapper served a role with remarkably less power than Cheney, where now today a group of slightly over two dozen alive at any given time have any idea of the total breadth of siloed UFO programs. Indeed, in my legacy program structure, the administrators, often elements of DoD and IC agencies, operate legacy activities in siloed containers, often with little to no cross collaboration across branches of the armed forces or intelligence agencies. I have published extensively on how likely in the early 2000s, 2005 and 2006 to be hyper specific, select prime contractors like North of Grumman harnessed IRAD or independent research and development to seize an opportunity to fund and operate their own breakaway UFO retrieval and exploitation activities. So in the modern day of 2026, we are left with a legacy program portfolio with no element of central leadership. A system in which everyone owns a proverbial piece of the pie with no centralized effort, objective, or road map that operates under exponentially more heightened security and secrecy protocols than the Manhattan Project 2.0 that came before. These grains of rice within a rice bowl are indeed a far cry to say the least from the Manhattan Project 2.0 No, we spent two plus hours breaking down which existed as a centralized effort with strong leadership by presidents, cabinet level officials, select statesmen, and some of the most accomplished military and scientific minds the United States had to offer. 
+As I state so often, the UFO legacy program structure of today and the onion of secrecy exists in a fragmented shell 
+of itself, far removed from the golden age we just spent 2 hours speaking about. In my understanding, in the modern 
+day, the head of the legacy pyramid, which is the UFO control group, has sat empty since the departure of Vice President 
+Dick Cheney in 2009. with the closest quote unquote mob boss being DNI James Clapper from 2010 to 2017. 
+
+Although Clapper served a role with remarkably less power than Cheney, where now today a group of slightly over two 
+dozen alive at any given time have any idea of the total breadth of siloed UFO programs. Indeed, in my legacy program 
+structure, the administrators, often elements of DoD and IC agencies, operate legacy activities in siloed containers, 
+often with little to no cross collaboration across branches of the armed forces or intelligence agencies. I have published 
+extensively on how likely in the early 2000s, 2005 and 2006 to be hyper specific, select prime contractors like North 
+of Grumman harnessed IRAD or independent research and development to seize an opportunity to fund and operate their 
+own breakaway UFO retrieval and exploitation activities. So in the modern day of 2026, we are left with a legacy program 
+portfolio with no element of central leadership. A system in which everyone owns a proverbial piece of the pie with no 
+centralized effort, objective, or road map that operates under exponentially more heightened security and secrecy 
+protocols than the Manhattan Project 2.0 that came before. These grains of rice within a rice bowl are indeed a far 
+cry to say the least from the Manhattan Project 2.0 No, we spent two plus hours breaking down which existed as a centralized 
+effort with strong leadership by presidents, cabinet level officials, select statesmen, and some of the most accomplished 
+military and scientific minds the United States had to offer. 
 
 While the Manhattan Project 2.0 was also subject to compartmentation and restricted need to know access like its precursor, the Atomic Project, the Manhattan Project 2.0 No. Seemingly operated with a very clear directive to retrieve and exploit crashed, landed, or downed nonhuman technical vehicles. Attempt to understand the modus operandi behind this non-human presence. Store and study the occasional craft occupant or pilot and employ extensive defensive counter measures such as counter intelligence, passage material, disinformation campaigns, and general spycraft to protect against both insider and outsider threats. And of course, the question must be asked, why was such a secrecy blackout undertaken in the Manhattan Project 2.0? Besides the obvious budding subrosa cold war with our adversaries was Soviet espionage and spycraft in particular where the need to hide asymmetric warfare capabilities and enforce feudalistic dominance was paramount. 
 
@@ -998,34 +1132,91 @@ Just go watch anything I've ever talked on the Wilson Davis notes in the former 
 
 And most if not more more importantly I'm going to say is that custody of recovered discs were to be analyzed by Vanavar Bush and custody was to be given to Atomic Energy Commission National Laboratories places at this time like Sandia. Well Sandia would come next year in 1949 when Truman asked AT&T and Western Electric to take over Sandia base Los Alamos Oakidge and yeah does that ring a bell? I firmly believe that is the case and of course that corresponds so well with my UFO legacy program outline where FFRDC's and GO institutions most prominently DOE and NNSA national labs hold much of the material and gatekeep knowledge to the lowest rung of the latter which is defense industrialbased prime contractors and their subcontractors and that seemed to be the case until North Grumman Loheed Martin and a couple others in 2005 and 2006 Six, the early days of the war on terror decided to do their own thing with their own self fund through misappropriation of IRA funds. Anyways, that kind of reviews the political shield cover as well with the top policy group. And we talked about Truman setting up the National Security Council as the UFO crash retrieval and legacy program centralized body. 
 
-And of course, Eisenhower continued that trend with the National Security Council 5412 committee signed in 1954 and 1955. literally under the 5412 committee was the quote unquote special group and following on to that was of course Nixon's 303 committee. So, let's start to talk about these cold war transitions because that's what I find so interesting. Of course Eisenhower was so imperative not only to UFO legacy programs but also the modern-day classification system. With his executive order 10501 Eisenhower got rid of the restricted classification not to be confused with restricted data in the DOE. Restricted was a fourth classification level outside of confidential, secret and top secret and during this time epoch program leaders were quite peeved about this removal of of the restricted classification. 
+And of course, Eisenhower continued that trend with the National Security Council 5412 committee signed in 1954 and 
+1955. literally under the 5412 committee was the quote unquote special group and following on to that was of course 
+Nixon's 303 committee. So, let's start to talk about these cold war transitions because that's what I find so 
+interesting. Of course Eisenhower was so imperative not only to UFO legacy programs but also the modern-day 
+classification system. With his executive order 10501 Eisenhower got rid of the restricted classification not to 
+be confused with restricted data in the DOE. Restricted was a fourth classification level outside of confidential, 
+secret and top secret and during this time epoch program leaders were quite peeved about this removal of of the 
+restricted classification. 
 
-So they started introducing ad hoc security protocols specifically top secret code word rate on access and that sort of thing continued for decades on and that's the wild wild west days of the programs where the programs could exploit top secret code word rate on access controls like the NRO used with like the ban classification system for example and so this was standard practice as as well as US classification and the legacy program infrastructure got an enormous bolster with the 1954 4 atomic energy agreement. As we talked about a 1954 atomic energy agreement, special nuclear materials, restricted data, formally restricted data is subject to statutory authority. So DOE classification essentially branched off from standard US and executive order-based classification which isn't subject to secret, top secret. I'm sorry, confidential secret and top secret clearance. You have L and Q Q clearance in the DOE which is equivalent to secret and top secret respectively. 
+So they started introducing ad hoc security protocols specifically top secret code word rate on access and that sort 
+of thing continued for decades on and that's the wild wild west days of the programs where the programs could exploit 
+top secret code word rate on access controls like the NRO used with like the ban classification system for example 
+and so this was standard practice as as well as US classification and the legacy program infrastructure got an enormous 
+bolster with the 1954 4 atomic energy agreement. As we talked about a 1954 atomic energy agreement, special nuclear 
+materials, restricted data, formally restricted data is subject to statutory authority. So DOE classification essentially 
+branched off from standard US and executive order-based classification which isn't subject to secret, top secret. I'm 
+sorry, confidential secret and top secret clearance. You have L and Q Q clearance in the DOE which is equivalent to 
+secret and top secret respectively. 
 
-But then you can also have Q clearance in the DOE with with kind of more added on like restricted data Q plus restricted data. And so that sort of classification system is statutory. It is empowered by the 1954 atomic energy agreement and classified material born classified and not subject to automatic declassification review. It is extremely different from the executive order-based classification system and is not subject to a simple presidential executive order. I've talked to many people about this and many people who are in positions of consequence are well aware of this, but an executive order by Trump to release the UFO files will not touch things covered by statutory authority. I've talked about this several times by now, but I think back to Dylan Borland saying whilst working at Ditra,  nearby there were old Atomic Energy Commission files that concluded that some UFOs were of extraterrestrial origin. Files like this are what I'm talking about. 
+But then you can also have Q clearance in the DOE with kind of more added on like restricted data Q plus restricted 
+data. And so that sort of classification system is statutory. It is empowered by the 1954 atomic energy agreement 
+and classified material born classified and not subject to automatic declassification review. It is extremely different 
+from the executive order-based classification system and is not subject to a simple presidential executive order. 
+I've talked to many people about this and many people who are in positions of consequence are well aware of this, 
+but an executive order by Trump to release the UFO files will not touch things covered by statutory authority. I've 
+talked about this several times by now, but I think back to Dylan Borland saying whilst working at Ditra,  nearby 
+there were old Atomic Energy Commission files that concluded that some UFOs were of extraterrestrial origin. Files 
+like this are what I'm talking about. 
 
-I personally don't know how to pry those loose so easily, but I'm sure that the executive branch I I'm sure Rubio since he knows this since Dave Grusch handed everything off to Rubio. But Rubio was pretty shrewd. He was able to  use separation of individuals to gather information for plausible deniability or just to keep himself at arms length. Rubio will know about this stuff. So hopefully he can use that to his advantage if he's trying to keep the cards close to his chest. Or he wants to be the one to spearhead a disclosure movement so he can run for office in a future term. Probably politicking with this disclosure movement currently. It's annoying, but it is what it is and we just kind of have to suffer it. 
+I personally don't know how to pry those loose so easily, but I'm sure that the executive branch I I'm sure Rubio 
+since he knows this since Dave Grusch handed everything off to Rubio. But Rubio was pretty shrewd. He was able to 
+use separation of individuals to gather information for plausible deniability or just to keep himself at arms length. 
+Rubio will know about this stuff. So hopefully he can use that to his advantage if he's trying to keep the cards close 
+to his chest. Or he wants to be the one to spearhead a disclosure movement so he can run for office in a future term. 
+Probably politicking with this disclosure movement currently. It's annoying, but it is what it is and we just kind of 
+have to suffer it. 
 
-So, Executive Order 10501, Nixon's 1972 executive order 11652, which was subject to criticism shortly after that.  We talked about that Congressional Research Service report that talked about people essentially being incredibly peeved and concerned that so many authorities not connected with US classification were able to slap on their own classification controls. Now, we start to see the decline of the legacy program security structure with Jimmy Carter in 1977, who, of course moved the US classification towards more government transparency. This is probably why the legacy programs haven't trusted as many Democratic politicians with UFO legacy program readons or partial readons. I firmly believe this because we could see that Clinton, Obama and so forth, Biden after the fact were not read into the program. they were just temporary employees and so forth.
+So, Executive Order 10501, Nixon's 1972 executive order 11652, which was subject to criticism shortly after that. 
+We talked about that Congressional Research Service report that talked about people essentially being incredibly peeved 
+and concerned that so many authorities not connected with US classification were able to slap on their own classification 
+controls. Now, we start to see the decline of the legacy program security structure with Jimmy Carter in 1977, who, of 
+course moved the US classification towards more government transparency. This is probably why the legacy programs 
+haven't trusted as many Democratic politicians with UFO legacy program readons or partial readons. I firmly believe 
+this because we could see that Clinton, Obama and so forth, Biden after the fact were not read into the program. they 
+were just temporary employees and so forth.
 
-So 1982 Reagan strips away the ability to use these ad hoc security protocols as well as national security decision memorandum 519 I believe. It was which came in 1985 shortly after yellow. So 1982, Executive Order 12356 and NSD 519 were what tightened the grasp on special access programs. More oversight, not government transparency, but more oversight. And of course, Yellow Fruit was a disaster. Yellow Fruit was part of the impetus for the Iran Contra findings. And Yellow Fruit was out of the US Army Special Operations Division in 1981. 
+So 1982, Reagan strips away the ability to use these ad hoc security protocols as well as national security decision 
+memorandum 519 I believe. It was which came in 1985 shortly after yellow. So 1982, Executive Order 12356 and NSD 519 
+were what tightened the grasp on special access programs. More oversight, not government transparency, but more 
+oversight. And of course, Yellow Fruit was a disaster. Yellow Fruit was part of the impetus for the Iran Contra 
+findings. And Yellow Fruit was out of the US Army Special Operations Division in 1981.
 
-I firmly believe the investigations and audits into Lieutenant Colonel Duncan not only found other covert activities in YellowFruit, but also the Army saw. I think this was a major domino in the Wilson Davis notes, the senior review group saying, "Hey, years ago, our program was almost infiltrated in a series of audits, so we had to get cozy and hide ourselves." I do believe that sort of massive SAP scandal really really really nearly exposed the programs and of course I believe the senior review group also talked about one of the issues being money. Of course, in the Lieutenant Colonel Duncan audits that revealed yellow fruit a lot of those were initially financial audits. So there's some pieces to put together there. 
+I firmly believe the investigations and audits into Lieutenant Colonel Duncan not only found other covert activities 
+in YellowFruit, but also the Army saw. I think this was a major domino in the Wilson Davis notes, the senior review 
+group saying, "Hey, years ago, our program was almost infiltrated in a series of audits, so we had to get cozy and 
+hide ourselves." I do believe that sort of massive SAP scandal really really really nearly exposed the programs and 
+of course I believe the senior review group also talked about one of the issues being money. Of course, in the 
+Lieutenant Colonel Duncan audits that revealed yellow fruit a lot of those were initially financial audits. So 
+there's some pieces to put together there. 
 
-And of course at that time as we see with Edward C. The Aldrich legacy programs were forced to start using cover offices within the known United States government with Edward Aldrich and the Air Force outside activities. Previously programs have been hiding in SAP umbrella's precursor to SAPS at this point like Polaris and Sand dollar. 
+And of course at that time as we see with Edward C. The Aldrich legacy programs were forced to start using cover 
+offices within the known United States government with Edward Aldrich and the Air Force outside activities. 
+Previously programs have been hiding in SAP umbrella's precursor to SAPS at this point like Polaris and Sand dollar. 
 
-But literally we see programs that were once funded from the US Treasury and had an actual presidentially mandated funding mechanism start to hide and cover programs because there's no wild wild west these programs these joint air force and NRO activities aren't able to use their top secret code word. So these activities outside the air force that the air force has administrative and operational control over we hide those in the air force under the SAF AA and bypass the AAZ which is the component level SAPCO for the Air Force. So that in itself is just to cover office. It's really intriguing. And then of course in 1994 again we see the programs fully separate and it took a man with a Machavellian political malleability and maneuvering like Dick Cheney to hold the programs together until he left office in 2009. And then the closest individual to be a mob boss if you will was Lieutenant General James Clapper. Who even holds the crumbs of what Clapper once held? I don't know, but I would imagine it's a small group. 
+But literally we see programs that were once funded from the US Treasury and had an actual presidentially mandated 
+funding mechanism start to hide and cover programs because there's no wild wild west these programs these joint air 
+force and NRO activities aren't able to use their top secret code word. So these activities outside the air force 
+that the air force has administrative and operational control over we hide those in the air force under the SAF AA 
+and bypass the AAZ which is the component level SAPCO for the Air Force. So that in itself is just to cover office. 
+It's really intriguing. And then of course in 1994 again we see the programs fully separate and it took a man with 
+a Machavellian political malleability and maneuvering like Dick Cheney to hold the programs together until he left 
+office in 2009. And then the closest individual to be a mob boss if you will was Lieutenant General James Clapper. 
+Who even holds the crumbs of what Clapper once held? I don't know, but I would imagine it's a small group. 
 
 But yes, we talked about the onion. We will talk so much more about the onion in part two. We are going to talk 
 about specifically what special access programs are, how they become unagnowledged and waved, what a bigot list 
 is, more on SAP history. How you access SAPs, different SAPs security checkpoints and so on. We're going to talk 
 about the concept of unrivaled secrecy, funding mechanisms, insider and outsider threat protection mechanisms and 
 so forth, the legacy programs used today. And we're going to talk about several modern-day program protection agencies. 
+
 These are going to include the DARPA SID security and intelligence directorate DOEICI office of intelligence and 
 counter intelligence AFL CMC IPD the air force life cycle management center information protect information 
 protection directorate I'm sorry and then maybe we'll talk a little bit more about AFOSIPJ but I've already 
-talked about that 20 never plenty never forget the name Terry Phillips never forget his successor Lee M Russ 
-with that out of the way Guys, we'll start to wrap it up today. I want to thank everybody for being here.
+talked about that 20 never plenty never forget the name Terry Phillips. Never forget his successor, Lee M Russ 
+with that out of the way guys. We'll start to wrap it up today. I want to thank everybody for being here.
 
 Please remember to like and subscribe. The channel's almost to 120,000 subscribers. Never in my wildest dreams 
 did I ever think that was possible. So, from the bottom of my heart, for everybody, thank you. I do have a 
