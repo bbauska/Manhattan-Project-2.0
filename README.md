@@ -1,13 +1,15 @@
 # Manhattan Project 2.0 - UFO Legacy Program - Goal now is to disclose FULLY this tax-eating government program. Part I of II.
 
-YouTube program <a href="https://youtu.be/jR-h5p2bd-A?list=TLPQMTEwNTIwMjaRJ4fcGKnZGQ">Manhattan Project 2.0</a>.
+YouTube program <a href="https://youtu.be/jR-h5p2bd-A?list=TLPQMTEwNTIwMjaRJ4fcGKnZGQ">Manhattan Project 2.0 (part 1 of 2)</a>.
 
+WHERE TO START?
 First of it, obviously it's understanding the situation, right? What do we have our hands on? They 
 took the Manhattan project secrecy and overlaid it on this issue because that secrecy worked well 
 for atomic bomb developments. And certainly this whole program in a nutshell. If I were to summarize 
 the 90 plus years of history, it is a reverse engineering program to garner some kind of insight and 
 very few people had that. 
 
+TOP-DOWN PYRAMID
 With top down you could look across the silos and see what was going on. It just became very 
 dysfunctional and they were afraid of people being too crossbriefed into the different silos for 
 counter espionage, counter intelligence that they were got to. Remember, a bulk of this program 
@@ -20,6 +22,7 @@ achievement of scientific brains in making it work.
 
 > There aren't in fact very many secrets. 
 
+UFO LEGACY PROGRAM ARCHITECTURE
 > There aren't secrets about the world of nature. There were secrets about the thoughts and 
 intentions of men. Sometimes they're secrets because a man doesn't like to know what he's up to if 
 he can avoid it. The singular purpose of this channel is to uncover the UFO legacy program 
@@ -45,7 +48,7 @@ handler. And finally, complete oversight was lost by 2009 when Vice President Di
 Cheney), the last man to harness centralized leadership of these activities, left office. 
 
 Whether it be Lieutenant General James Clapper, the closest thing to a Cheneyesque centralized oversight 
-figure while serving as director of national intelligence. Vanavar Bush, who operated as a senior 
+figure while serving as director of national intelligence. Vannevar Bush, who operated as a senior 
 scientific figure during the 1940s and 1950s Manhattan Project 2.0. Mr. Terry Phillips who has 
 allegedly engaged in reprisals against whistleblowers within Air Force SAP channels and Northrup 
 Grumman or Edward C. Aldrich, who seemingly aided in the evolution of UFO programs. Hiding within 
@@ -73,55 +76,49 @@ federally funded research and development centers or FFRDC's and GOCO or governm
 operated institutions. These GOCO structures allow the US government to attract the brightest of 
 industry and subject matter experts while still retaining strict control over programs, materials, 
 breakthroughs, etc. Such FFRDC & GOCO efforts have been critical to the legacy program effort since the 
-Truman administration all the way back to the late 1940s in which custody of recovered vehicles 
-were given to now Department of Energy and former Atomic Energy Commission National Labs like 
-Sandia, Los Alamos and Oak Ridge. More specific examples of FFRDC's and GOCO include the MITER 
-Corporation, Rand Corporation, Aerospace Corporation, CNA Corporation, and Air Force Plant 42 
-within Palmdale, California. 
+Truman administration. All the way back to the late 1940s in which custody of recovered vehicles 
+were given to now Department of Energy and former Atomic Energy Commission. National Labs like 
+Sandia, Los Alamos and Oak Ridge. More specific, examples of FFRDC's and GOCO include the MITER 
+Corporation, Rand Corporation, Aerospace Corporation, CNA Corporation, and Air Force Plant 42 within 
+Palmdale, California. 
 
-At the bottommost layer of my pyramid sits the most security vulnerable 
-aspect of the legacy structure, Defense Industrial-Based Prime Contractors and their subcontractors. 
-Only specific personnel within these companies are read into the legacy effort at a functional level, 
-including executive level positions or special program directors. While engineers, scientists, and 
-technicians who actually brush elbows with the programs through carveout contracts are largely kept 
-in the dark. The mortar that binds this structure together. 
+At the bottommost layer of the pyramid sits the most security vulnerable aspect of the legacy structure, 
+Defense Industrial-Based Prime Contractors and their subcontractors. Only specific personnel within these 
+companies are read into the legacy effort at a functional level, including executive level positions or 
+special program directors. While engineers, scientists, and technicians who actually brush elbows with the 
+programs through carveout contracts are largely kept in the dark. The mortar that binds this structure together. 
 
-Well, this is the US defense industrial 
-base whose authoritative channels are often bypassed to allow UFO legacy programs to harness any US 
-military and intelligence asset needed to accomplish these covert mission directives. And finally, 
-and our topic for this new two-part series, the limestone casing that once encapsulated the Great 
+Well, this is the US defense industrial base whose authoritative channels are often bypassed to allow UFO legacy
+programs to harness any US military and intelligence asset needed to accomplish these covert mission directives. 
+And finally, and our topic for this new two-part series, the limestone casing that once encapsulated the Great 
 Pyramids of Giza to protect these structures from the elements. 
 
-Well, our equivalent today is the UFO legacy program security apparatus. One of the most appropriate 
-and poignant questions one could 
-ask about the existence of UFO legacy programs is how could such technology biologics crash 
-retrievals and programs be kept secret and kept secret for nearly 90 years at that. After all, 
-according to most conventional and wise thinking, the US government can't keep a secret. I 
-have spent so much time in my projects discussing the who, what, when, where, and why of UFO 
-legacy programs that I think it is appropriate to finally step back and analyze the security 
-apparatus behind these activities. 
+UFO LEGACY PROGRAM SECURITY APPARATUS
+Well, our equivalent today is the UFO legacy program security apparatus. One of the most appropriate and poignant 
+questions one could ask about the existence of UFO legacy programs is how could such technology biologics crash 
+retrievals and programs be kept secret and kept secret for nearly 90 years at that. After all, according to most 
+conventional and wise thinking, the US government can't keep a secret. I have spent so much time in my projects 
+discussing the who, what, when, where, and why of UFO legacy programs that I think it is appropriate to finally 
+step back and analyze the security apparatus behind these activities. 
 
-How program secrecy has evolved over time? What classification 
-systems and directives provide foundational cover for covert UFO programs? What individuals and 
-program protection offices have safeguarded these secrets for decades? How disinformation and 
-narrative shaping is weaponized to reinforce a strong stigma around the UFO topic. And overall, 
-how this seemingly infinitely layered secrecy apparatus is organized. Because at the end of the day 
-here, covert and highly compartmented waved unagnowledged special access programs, or WOOAPS, 
-facilitating and gatekeeping knowledge and need to know access to the greatest secret in the 
-history of mankind, 
+SECRECY INITIALLY
+How program secrecy has evolved over time? What classification systems and directives provide foundational cover for 
+covert UFO programs? What individuals and program protection offices have safeguarded these secrets for decades? 
+How disinformation and narrative shaping is weaponized to reinforce a strong stigma around the UFO topic. And 
+overall, how this seemingly infinitely layered secrecy apparatus is organized. Because at the end of the day here, 
+covert and highly compartmented waved unagnowledged special access programs, or WOOAPS, facilitating and gatekeeping 
+knowledge and need to know access to the greatest secret in the history of mankind, which is the presence and procurement 
+of non-human technology and their occasional biological operators, existing as a hidden shadow symbiotically attached to 
+the United States government, armed forces, and intelligence community. It would require an ever evolving, impenetrable, 
+and stalwart architecture to stay hidden from even presidents and other elected quote unquote temporary employees, would 
+it not? 
 
-Which is the presence and procurement of non-human technology and their 
-occasional biological operators, existing as a hidden shadow symbiotically attached to the United 
-States government, armed forces, and intelligence community. It would require an ever evolving, 
-impenetrable, and stalwart architecture to stay hidden from even presidents and other elected quote 
-unquote temporary employees, would it not? 
-
-Thus, for this massive pursuit, we will frame the legacy 
-security architecture as an onion. Layers upon layers of secrecy were the center of the onion. The 
-core secrets and extent presence of the UFO crash retrieval and exploitation portfolio is always 
-hidden and obscured by another layer of protection and secrecy. This onion analogy can be harnessed 
-to understand so much of the program protection at play here and not just in the modern day, but 
-dating back decades as well as to the inception of this Manhattan Project 2.0. 
+THE ONION
+Thus, for this massive pursuit, we will frame the legacy security architecture as an onion. Layers upon layers of secrecy 
+were the center of the onion. The core secrets and extent presence of the UFO crash retrieval and exploitation portfolio 
+is always hidden and obscured by another layer of protection and secrecy. This onion analogy can be harnessed to understand 
+so much of the program protection at play here and not just in the modern day, but dating back decades as well as to the 
+inception of this Manhattan Project 2.0. 
 
 From stripping the 
 Manhattan Project secrecy architecture to classified presidential executive orders under Truman and 
