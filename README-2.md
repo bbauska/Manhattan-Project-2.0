@@ -1,5 +1,8 @@
 # Manhattan Project 2.0 - UFO Legacy Program - Goal now is to disclose FULLY this tax-eating government program. Part II of II.
 
+Youtube program: https://youtu.be/6MsmPrpQqa8
+part 2 of 2
+
 David Grusch 
 >the cognizance of who was kind of leading the program changed over time epochs and the genesis was 
 was in the Truman and Eisenhower National Security Council and and the CIA office of policy strategy but you know 
@@ -7,6 +10,7 @@ the atomic energy commission was involved department of defense at the time with
 on time epochs and who they trust career civil servants career senior executives in industry they rotate it and 
 it's there's no they randomize the schema too it's not like this one guy and this one DoD office always gets it. 
 
+BURN IT ALL, No history allowed - CIA makes ALL the rules
 They spread it across and it's this like rule by committee flat hierarchy. What we've seen in previous administrations 
 like Clinton people. The program thought Clinton was going to disclose in the '90s. Well, there was a burn bag and shred 
 party at a particular agency in the mid '90s I'm aware of. You have to remember so here's one of the loopholes they 
