@@ -391,38 +391,107 @@ But to get real specific here in reference to SAPs, day-to-day handling of SAP m
 
 SAP FS can be placed anywhere that meets or exceeds skiff standards prominently placed on contractor facilities within defense industrialbased infrastructure and employ extensive physical electronic visual etc safeguards to ensure the sanctity of SAP materials. Day-to-day operations of SAPS rely on both government and contractor personnel. Such a roster here includes a government program manager or GPM who is a senior government program official responsible for all aspects of the SAP, a contractor program manager or CPM who is the industry equivalent to the GPM and is responsible for the program's overall management within the contractor facility and is responsible for executing all contractual obligations. a program security officer or PSO who is responsible for full spectrum program security. Government SAP security officers or GSSOs under the PSO and a contractor program security officer or CPSO. This here is a perfect bridge into our next section. Program protection agencies who often live within the program security channels deputized by elements of the legacy programs to neutralize program exposure and insider and outsider threats.
 
-But I do have knowledge of active planned reprisal activity against myself and other colleagues and it's very very upsetting to me. 
+But I do have knowledge of active planned reprisal activity against myself and other colleagues and it's very 
+very upsetting to me. 
 
 > Coming from where? 
-> Uh certain senior leadership at previous agencies I was associated with and that's all I'll say publicly but I can provide more details in a closed environment. Yeah, there were certain colleagues of mine that were brutally administratively attacked and it, you know, actually makes me very upset to as a leader to see that happen to other co-workers and actually superiors of mine over the last three years. 
+> Uh certain senior leadership at previous agencies I was associated with and that's all I'll say publicly but I 
+can provide more details in a closed environment. Yeah, there were certain colleagues of mine that were brutally 
+administratively attacked and it, you know, actually makes me very upset to as a leader to see that happen to other 
+co-workers and actually superiors of mine over the last three years. 
 
 > How do you account for that response? That, that seems like a bizarre response. 
-> Uh, I call it administrative terrorism. That's their their quiver, their tool in the toolbox to silence people especially, you know, the  career government service cares about their career, cares about their clearance, their reputation to climb the ladder. And when you threaten that, flow career path, a lot of people back off. 
+> Uh, I call it administrative terrorism. That's their their quiver, their tool in the toolbox to silence people 
+especially, you know, the  career government service cares about their career, cares about their clearance, their 
+reputation to climb the ladder. And when you threaten that, flow career path, a lot of people back off. 
 
-But I'm here to represent those people. Let us now move down the onion and identify program exposure management and protection agencies. Elements of specific US agencies/services that are deputized to enforce insider and outsider threat protection all to enforce total security surrounding UFO legacy programs. If we have the core of our onion protected by layers of exploited special access program protocols which are in turn protected by the SAP SRG, think of program protection agencies as the antibodies that swarm to neutralize threats to the core of legacy. Of course, program protection and program exposure management are inherent to the SAP structure and we discussed as such in our SAP section with defining component USD and DoD level SAP codes, SAP and the SRG. There is nothing nefarious about program protection. 
+But I'm here to represent those people. Let us now move down the onion and identify program exposure management 
+and protection agencies. Elements of specific US agencies/services that are deputized to enforce insider and 
+outsider threat protection all to enforce total security surrounding UFO legacy programs. If we have the core 
+of our onion protected by layers of exploited special access program protocols which are in turn protected by 
+the SAP SRG, think of program protection agencies as the antibodies that swarm to neutralize threats to the 
+core of legacy. Of course, program protection and program exposure management are inherent to the SAP structure 
+and we discussed as such in our SAP section with defining component USD and DoD level SAP codes, SAP and the 
+SRG. There is nothing nefarious about program protection. 
 
-Indeed, the concept is critical to maintaining a healthy SAP enterprise. I am stating that under or better phrase here within the SAP ecosystem exists several agencies, offices or services that are deputized to protect and neutralize threats towards high-risk waved national special access programs regarding covert UFO action. Unlike other program protection elements that exist outside the SAPCO, SAPO and SRG DoD pyramid like the ISO or the information security and oversight office and DCSA, Defense Counter Intelligence and Security Agency, the select agencies we will speak on exist within the very same agencies and departments within the armed forces intelligence community and DoD that operate on UFO legacy activities. And I have spoken about one such agency extensively in my video on the Air Force Hidden Wing Program. This being the Air Force Office of Special Investigations, Office of Special Projects, or AFOSIPJ. 
+Indeed, the concept is critical to maintaining a healthy SAP enterprise. I am stating that under or better 
+phrase here within the SAP ecosystem exists several agencies, offices or services that are deputized to protect 
+and neutralize threats towards high-risk waved national special access programs regarding covert UFO action. 
+Unlike other program protection elements that exist outside the SAPCO, SAPO and SRG DoD pyramid like the ISO 
+or the information security and oversight office and DCSA, Defense Counter Intelligence and Security Agency, 
+the select agencies we will speak on exist within the very same agencies and departments within the armed 
+forces intelligence community and DoD that operate on UFO legacy activities. And I have spoken about one 
+such agency extensively in my video on the Air Force Hidden Wing Program. This being the Air Force Office 
+of Special Investigations, Office of Special Projects, or AFOSIPJ. 
 
-Indeed, this office PJ is tasked with safeguarding the US Air Force's most sensitive and secretive special access programs. I really don't want to spend too much time on PJ, but once again, I will bring up two names attached to PJ that I am aware are paramount gatekeepers to the UFO topic. And these include former AFOSIPJ executive director and departmentwide Air Force SAP security director, now vice president of security at North of Grumman, former senior executive service, Mr. Terry Phillips. I am aware that before his retirement from federal service in 2021, Philillips operated as an enforcer for the UFO activity administrative structure, leveraging administrative terrorism and much worse against prospective whistleblowers. Indeed, I understand Philillips continues similar work within North of Grumman to this day. Philip's successor in AFOSIPJ and the Air Force SAP security enterprise is a man named Mr. Lee M. Russ, similar to Phillips, I understand Mr. Russ picked up right where Phillips left off within federal service. 
+Indeed, this office PJ is tasked with safeguarding the US Air Force's most sensitive and secretive special 
+access programs. I really don't want to spend too much time on PJ, but once again, I will bring up two names 
+attached to PJ that I am aware are paramount gatekeepers to the UFO topic. And these include former AFOSIPJ 
+executive director and departmentwide Air Force SAP security director, now vice president of security at 
+North of Grumman, former senior executive service, Mr. Terry Phillips. I am aware that before his retirement 
+from federal service in 2021, Philillips operated as an enforcer for the UFO activity administrative 
+structure, leveraging administrative terrorism and much worse against prospective whistleblowers. Indeed, I 
+understand Philillips continues similar work within North of Grumman to this day. Philip's successor in 
+AFOSIPJ and the Air Force SAP security enterprise is a man named Mr. Lee M. Russ, similar to Phillips, I 
+understand Mr. Russ picked up right where Phillips left off within federal service. 
 
-Let's just say I would not be surprised if documents are ever released that directly state Russ has been involved in UFO narrative shaping. Phillips and Russ are critical names, but alas, I have covered these two in great detail before. So, let's move on to new things here. I would like to now move on to the Defense Advanced Research Projects Agency, DARPA's Security and Intelligence Directorate, SID. Coming to DARPA is like grabbing the nose cone of a rocket and holding on for dear life. 
+Let's just say I would not be surprised if documents are ever released that directly state Russ has been 
+involved in UFO narrative shaping. Phillips and Russ are critical names, but alas, I have covered these two 
+in great detail before. So, let's move on to new things here. I would like to now move on to the Defense 
+Advanced Research Projects Agency, DARPA's Security and Intelligence Directorate, SID. Coming to DARPA is 
+like grabbing the nose cone of a rocket and holding on for dear life. 
 
 > DARPA is a place where if you don't invent the internet, you only get a B. 
 > A DARPA program manager quite literally invents tomorrow. 
 
 > We are thinking about innovation unconstrained. Where can we go predict what is emerging as threats? 
-> We're looking for the applications that seem impossible. That passion will be saving lives 5, 10, 15 years from now. 
+> We're looking for the applications that seem impossible. That passion will be saving lives 5, 10, 15 years 
+from now. 
 > Coming to work every day and being humbled by that. 
-> Real fast. What exactly is DARPA? DARPA is the DoD R&D, research and development agency reporting to the under secretary of defense for research and engineering that is tasked with development of emerging and advanced technologies for military use. As the agency that quote unquote shaped the modern world, DARPA is the tip of the spear for advanced asymmetrical advantages in national security related technology. DARPA is well worth an enormous exploration into possible involvement with recovered non-human materials, craft, and bodies, as DARPA is strangely and largely missing from most UFO legacy program conversations. And do not fret, one day I will undertake this effort. The DARPA SID or again security and intelligence directorate is a critical support component within DARPA. 
+> Real fast. What exactly is DARPA? DARPA is the DoD R&D, research and development agency reporting to the 
+under secretary of defense for research and engineering that is tasked with development of emerging and advanced 
+technologies for military use. As the agency that quote unquote shaped the modern world, DARPA is the tip of 
+the spear for advanced asymmetrical advantages in national security related technology. DARPA is well worth 
+an enormous exploration into possible involvement with recovered non-human materials, craft, and bodies, as 
+DARPA is strangely and largely missing from most UFO legacy program conversations. And do not fret, one day 
+I will undertake this effort. The DARPA SID or again security and intelligence directorate is a critical support 
+component within DARPA. 
 
-SID works to ensure protection of DARPA's high-risk R&D programs that involve highly sensitive technologies critical to US national security. SID safeguards against insider threats, foreign influence, espionage, and a wide swath of protection protocols to ensure US technological dominance. DARPA SID is the premier program protection element for DARPA agencywide and inter agency SAP activity. quote planning, executing, and directing the information, personnel, industrial, information assurance, and physical security programs at DARPA and at specific contractor sites end quote. 
+SID works to ensure protection of DARPA's high-risk R&D programs that involve highly sensitive technologies 
+critical to US national security. SID safeguards against insider threats, foreign influence, espionage, and a 
+wide swath of protection protocols to ensure US technological dominance. DARPA SID is the premier program 
+protection element for DARPA agencywide and inter agency SAP activity. quote planning, executing, and directing 
+the information, personnel, industrial, information assurance, and physical security programs at DARPA and at 
+specific contractor sites end quote. 
 
-Indeed, Sid's expressed mission is to quote develop, manage, and implement programs that facilitate the secure and successful accomplishments of DARPA's mission while protecting DARPA technical and administrative personnel, information, property, and ensuring business continuity. End quote. In an almost comical statement, DARPAD's PSRs or program security representatives analyze and create protection strategies and tactics. frequently for technologies that exist nowhere else. End quote. DARPADID is incredibly unique as an office because its security representatives are not stovepiped into specific types of program security support. Example being just collateral, just SAP or SEI or just CUI. Instead, SID's PSRs are quotes responsible for providing expert security support to a program portfolio that may include fundamental research, controlled unclassified collateral SAP, SEI, and other compartmented information activities. End quote. 
+Indeed, Sid's expressed mission is to quote develop, manage, and implement programs that facilitate the secure 
+and successful accomplishments of DARPA's mission while protecting DARPA technical and administrative personnel, 
+information, property, and ensuring business continuity. End quote. In an almost comical statement, DARPAD's PSRs 
+or program security representatives analyze and create protection strategies and tactics. frequently for technologies 
+that exist nowhere else. End quote. DARPADID is incredibly unique as an office because its security representatives 
+are not stovepiped into specific types of program security support. Example being just collateral, just SAP or SEI 
+or just CUI. Instead, SID's PSRs are quotes responsible for providing expert security support to a program portfolio 
+that may include fundamental research, controlled unclassified collateral SAP, SEI, and other compartmented information 
+activities. End quote. 
 
-And another quote, quote, they are the tip of the spear for execution of SID's primary function, enabling the secure development of DARPA technologies. End quote. Now, apply this hands-on SID approach to some of the day-to-day SAP operations we just spoke of. As best as I can tell, the SID was founded by at least 2003 when the first mention of SID I can find is a routing line for a DARPA information processing techniques office document. I wonder what office would ostensibly function as quote unquote antibodies if someone posed a security risk to the most covert deepixed inter agencywaved USAP portfolio in existence. I will go so far as to say I'm aware of former directors within DARPADID that have engaged in serious crimes to silence whistleblowers and prevent program exposure. These include, but are not limited to, wet works operations. 
+And another quote, quote, they are the tip of the spear for execution of SID's primary function, enabling the 
+secure development of DARPA technologies. End quote. Now, apply this hands-on SID approach to some of the day-to-day 
+SAP operations we just spoke of. As best as I can tell, the SID was founded by at least 2003 when the first mention 
+of SID I can find is a routing line for a DARPA information processing techniques office document. I wonder what 
+office would ostensibly function as quote unquote antibodies if someone posed a security risk to the most covert 
+deepixed inter agencywaved USAP portfolio in existence. I will go so far as to say I'm aware of former directors 
+within DARPADID that have engaged in serious crimes to silence whistleblowers and prevent program exposure. These 
+include, but are not limited to, wet works operations. 
 
-I would encourage Congress to immediately construct interrogatories leveraged at DARPA SID and its SSO support services office. I would
-leverage questions towards former SID directors under penalty of prosecution if questions are not answered truthfully. I genuinely hope this does happen. Now, believe it or not, I do have some sense of self-preservation, so I will not be naming this individual, but it would not be a Gerb video without names. DARPA reports through the office of the under secretary of defense for research and engineering directly to the USDRE. Recall from earlier, USDRE is the evolution of Vanavar Bush's research and development board, RDB. And according to DODI5205.11, USD R&E quote identifies and cultivates cuttingedge technology developments, technology transition, developmental prototyping, experimentation, and developmental testing activities and programs requiring SAP protection to ensure continued US war fighting advantage. End quote. 
+I would encourage Congress to immediately construct interrogatories leveraged at DARPA SID and its SSO support 
+services office. I would leverage questions towards former SID directors under penalty of prosecution if questions 
+are not answered truthfully. I genuinely hope this does happen. Now, believe it or not, I do have some sense of 
+self-preservation, so I will not be naming this individual, but it would not be a Gerb video without names. DARPA 
+reports through the office of the under secretary of defense for research and engineering directly to the USDRE. 
+Recall from earlier, USDRE is the evolution of Vanavar Bush's research and development board, RDB. And according 
+to DODI5205.11, USD R&E quote identifies and cultivates cuttingedge technology developments, technology transition, 
+developmental prototyping, experimentation, and developmental testing activities and programs requiring SAP 
+protection to ensure continued US war fighting advantage. End quote. 
 
 Since Sid is a support directorate directly under the DARPA director, Sid's direct administrative line of accountability traces directly to the under secretary of defense for research and engineering. So let's name a man within this chain of command that I know to be legacy program. Dr. Peter Hinam. 
 
@@ -515,20 +584,42 @@ But that's certainly up to director, former director Clapper to to to opine abou
 
 With this comes the baggage that even outside the ATIP NSE cover activity, Lou either prior to NPMS position or during NPMS position operated directly under or within the legacy programs. I once again echo this sentiment from Corbel. Yeah. So David Gres talked again and I was really glad he decided to cuz he's not all over the media. I do think that he has a difference of opinion and that's for him to talk about when it comes to this stuff. You know, he really thinks everybody should just open up and say what they know. For example, he thinks that if Lu Alzando was part of the legacy UFO program that he should just say it, go out on the limb and just say it. But ATIP, although Clapper or his superiors true motives for such an activity are unknown. Well, ATIP sought to conduct a partial disclosure campaign and establish Hillary Clinton as the disclosure president. 
 
-These disclosures would have seen a huge emphasis on UFOs existing as a national security threat. Revelations of an amorphous non-human presence on this planet and the general discussion that we are not alone on this planet. These disclosures, however, would not have featured crash retrieval, reverse engineering, exploitation, NHI taxonomy, and of course, the revelations of the legacy programs. Indeed, prior to David Grush coming forward, Alzando would essentially only discuss crash retrievalss in reference to Roswell, which of course at this point is a cultural zeitgeist event and a well-known coverup. 
+These disclosures would have seen a huge emphasis on UFOs existing as a national security threat. Revelations of 
+an amorphous non-human presence on this planet and the general discussion that we are not alone on this planet. 
+These disclosures, however, would not have featured crash retrieval, reverse engineering, exploitation, NHI 
+taxonomy, and of course, the revelations of the legacy programs. Indeed, prior to David Grush coming forward, 
+Alzando would essentially only discuss crash retrievalss in reference to Roswell, which of course at this point 
+is a cultural zeitgeist event and a well-known coverup. 
 
-No harm, I guess, in discussing one singular crash retrieval event 70 years ago at the time, especially if you never mention the custodianship of the wreckage. Indeed, after Dave Grush went public in full kimono, Lou's crew was forced to reposture and discuss crash retrieval events and the legacy programs. This is extremely evident in the 2024 UAP hearings where Alzando seems rather caught off guard and nervous compared to his usual interviews in which he can talk circles around really answering questions.
+No harm, I guess, in discussing one singular crash retrieval event 70 years ago at the time, especially if 
+you never mention the custodianship of the wreckage. Indeed, after Dave Grush went public in full kimono, 
+Lou's crew was forced to reposture and discuss crash retrieval events and the legacy programs. This is 
+extremely evident in the 2024 UAP hearings where Alzando seems rather caught off guard and nervous compared 
+to his usual interviews in which he can talk circles around really answering questions.
 
-> Okay. Mr. Al Alzando, you state in your testimony that quote, "Advanced technologies not by our government or any other government are monitoring sensitive military installations around the globe." End quote. If these technologies are not made by any government, who's making them? Private companies or are you implying they are crafted by a non-human intelligence? 
+> Okay. Mr. Al Alzando, you state in your testimony that quote, "Advanced technologies not by our government 
+or any other government are monitoring sensitive military installations around the globe." End quote. If 
+these technologies are not made by any government, who's making them? Private companies or are you implying 
+they are crafted by a non-human intelligence? 
 
-> Well, ma'am, that's precisely why we're here. U the problem is that temporally speaking over decades, not just the last
-10 years. Before to put this in perspective, when 
+> Well, ma'am, that's precisely why we're here. U the problem is that temporally speaking over decades, not 
+just the last 10 years. Before to put this in perspective, when 
 
 > are these private companies you're implying or is this non-human intelligence? 
 > It may be both. When it comes to Blue Force technologies, I would not be able to discuss them. 
-> Okay. Are you read into secret UAP crash retrieval programs? We would have to have a conversation in a close session. Ma'am, I signed documentation three years ago that restricts my ability to discuss specifically crash retrievals.
+> Okay. Are you read into secret UAP crash retrieval programs? We would have to have a conversation in a close 
+session. Ma'am, I signed documentation three years ago that restricts my ability to discuss specifically crash 
+retrievals.
 
-> But let's quickly back up here as Alzando Melon, General Neil McCassland, John Podesta, who was Hillary Clinton's campaign manager, and others used one specific vessel through which Lou executed ATIP's mission, and this was through Tom Dong and to the stars academy. I recognized that there were people in government that wanted to engage the public on topics that unfortunately had a stigma even though they were based in scientific fact. At the time, there was no mechanism for them to do this. Through a series of meetings, I was soon connected to a large group of US government officials from the CIA, the Department of Defense, and Loheed Martin Skunk Works. These guys were the ones involved in the secret of US government programs that dealt with these subjects. And they have all taken tremendous risks to themselves and their reputations to do something that can benefit the world. 
+> But let's quickly back up here as Alzando Melon, General Neil McCassland, John Podesta, who was Hillary 
+Clinton's campaign manager, and others used one specific vessel through which Lou executed ATIP's mission, 
+and this was through Tom Dong and to the stars academy. I recognized that there were people in government 
+that wanted to engage the public on topics that unfortunately had a stigma even though they were based in 
+scientific fact. At the time, there was no mechanism for them to do this. Through a series of meetings, I 
+was soon connected to a large group of US government officials from the CIA, the Department of Defense, 
+and Loheed Martin Skunk Works. These guys were the ones involved in the secret of US government programs 
+that dealt with these subjects. And they have all taken tremendous risks to themselves and their reputations 
+to do something that can benefit the world. 
 
 They wanted to be a part of something special to be a part of a company that could not only change the way we see ourselves but also change the path humanity is on. I have spoken at length about the quandry that is to the stars academy in which Dong, Alisando, Melon, Podesta, Halputoff, Major General Neil McCasteland, Major General Michael Kerry, Loheed Skunkworks Executive Vice President Rob Weiss all banded together for a slow disclosure campaign. I have also discussed several times how Alzando's ATIP's direction of such an idea was likely an evolution of project forum as outlined in the Bass 10-month report which was described as disclosure efforts through popular zeitgeist figures. And guys, this is not a knock at Tom. I personally love Tom. I believe Alzando and others parasitically attached themselves to his curiosity on the topic. Indeed, in my NRO project, I theorized Alzando even disclosed elements of the immaculate constellation USAP to Dong, specifically surrounding episodic visits and foreign knowledge of UFO events as outlined in the IMCON report. 
 
@@ -648,11 +739,25 @@ We studied types and classifications of SAPs and ultimately discussed examples o
 
 We identified several program protection agencies deputized to enforce insider and outsider threat protection for the legacy infrastructure. These include a DARPA SID, AFOSIPJ, AFL CMCIP and DOE OICI. We even reviewed possible actions taken by these services such as wet works and administrative terrorism. Lastly, we have discussed disinformation and narrative management, highlighting a coordinated disinformation effort that has been in play since roughly 1953 with three major milestones. 
 
-The Robertson panel, Condan Committee, and Arrow. We studied a parallel effort to Arrow that while also operating as a narrative management campaign, originated from within a different section of The Onion, Lou Alzando and the ATIP cover program. I'm sure I'll get flack for such discussion of Lou, but it is critical to discuss this topic and the nuances behind why there has always been so much controversy behind Alzando. Alzando is not the champion of disclosure we humans deserve. Once again, if Lu Alzando operated at the behest of legacy programs before, during, or after the fake ATIP program, he should just come out and say it. 
+The Robertson panel, Condan Committee, and Arrow. We studied a parallel effort to Arrow that while also 
+operating as a narrative management campaign, originated from within a different section of The Onion, 
+Lou Alzando and the ATIP cover program. I'm sure I'll get flack for such discussion of Lou, but it is 
+critical to discuss this topic and the nuances behind why there has always been so much controversy 
+behind Alzando. Alzando is not the champion of disclosure we humans deserve. Once again, if Lu Alzando 
+operated at the behest of legacy programs before, during, or after the fake ATIP program, he should 
+just come out and say it. 
 
-He still does have time to do the right thing. And believe it or not, guys, there is still so much I haven't gotten to that I feel like I'm missing out by not including in our investigation. But this is already such a robust and long project. Two specific examples parallel to the SAP Enterprise come to mind. Manage need to know MNTK codewords and constructs and alternative compensatory control measures, ACCMS. 
+He still does have time to do the right thing. And believe it or not, guys, there is still so much I 
+haven't gotten to that I feel like I'm missing out by not including in our investigation. But this is 
+already such a robust and long project. Two specific examples parallel to the SAP Enterprise come to 
+mind. Manage need to know MNTK codewords and constructs and alternative compensatory control measures, 
+ACCMS. 
 
-And yeah, we'll probably get to these in the future. So, as we've seen here, the outermost protective layer of my legacy program pyramid, security, secrecy, and program protection, is no small fish to tackle. I sincerely hope over the course of this monolithic investigation, you have learned a thing or two as to how the legacy programs have maintained their covert, impenetrable nature. These programs are so secretive and siloed. 
+And yeah, we'll probably get to these in the future. So, as we've seen here, the outermost protective 
+layer of my legacy program pyramid, security, secrecy, and program protection, is no small fish to 
+tackle. I sincerely hope over the course of this monolithic investigation, you have learned a thing 
+or two as to how the legacy programs have maintained their covert, impenetrable nature. These programs 
+are so secretive and siloed. 
 
 We as Americans are facing a severe national issue where such legacy programs are a pitiful shell of themselves rife with adversarial thiefts subject to insane brain drain and a system of enormous waste. What's going on guys? It's Gerb. And I say this at the end of every single video, but I mean it especially now. If you're still here with me, thank you from the bottom of my heart. It means the most that you would watch this two-part at this point about 7-hour investigation with me. Learn with me, research with me, discover with me. So, thank you so much. I appreciate it more than you can ever possibly understand. This two-part investigation has without a doubt been my favorite work to date. 
 
@@ -693,29 +798,83 @@ ATIP was an informal working group. So, in my opinion, and I don't think it's my
 
 We know that SAP's protection levels come unacnowledged which generally has an unclassified budget and a lot of congressional members can get a readin onto that. Unagnowledged which carry multitudes higher security budget than standard acknowledged SAPs. Often time the budgets for unacknowledged SAPs are kind of rolled into generic budgets or they are completely classified and then waved which are the most serious SAPs possible where the SAP which kind of reviews the the need and continued need for wave statuses because the SAP and its permanent members and its SRG are read into all waved use apps throughout the entire US government at least within the DoD. 
 
-Waved use apps are extremely serious and a lot of the times only the gang of eight or gang of four are supposed to be read into these projects but as we know with the legacy programs oftent times this is avoided and there's key congress people put here and there who are read into such activities I would look at some senators or congressmen who were family or related to former presidents to kind of find out some some people who might fit that bill and then we know there's there's further kind of security not classifications but security protections that can be put on. 
+Waved use apps are extremely serious and a lot of the times only the gang of eight or gang of four are supposed 
+to be read into these projects but as we know with the legacy programs oftent times this is avoided and there's 
+key congress people put here and there who are read into such activities I would look at some senators or 
+congressmen who were family or related to former presidents to kind of find out some some people who might fit 
+that bill and then we know there's there's further kind of security not classifications but security protections 
+that can be put on. 
 
-We know bigoted as Dave Grush talked about which is by name. We also of course know the more much more standard no foreign not releasable to foreign nationals. And I mentioned no foreign because I'm specifically aware of programs that utilize the no foreign carveout. back in their heyday those programs have ended. I imagine their records and materials have been either destroyed or buried. Um, but I am confident that that selection of of specific programs not only existed but dealt with some pretty pretty wide wide topics from reverse engineering to crash retrievalss to the study of biologics. 
+We know bigoted as Dave Grush talked about which is by name. We also of course know the more much more standard 
+no foreign not releasable to foreign nationals. And I mentioned no foreign because I'm specifically aware of 
+programs that utilize the no foreign carveout. back in their heyday those programs have ended. I imagine their 
+records and materials have been either destroyed or buried. Um, but I am confident that that selection of of 
+specific programs not only existed but dealt with some pretty pretty wide wide topics from reverse engineering 
+to crash retrievalss to the study of biologics. 
 
-So, now let's get finally to the real meat and potatoes and most interesting and most important part of this video in my opinion, which is how can legacy programs use special access programs to completely wave any carveout or reporting requirements and maintain total secrecy? Because this, after all, if we're studying the legacy programs in the modern day, is the whole crux and most important piece of this video. Dave Gusher's Judi Judicial Watch interview is sublime. It's probably the best interview I've ever seen on the topic. It's fantastic. 
+So, now let's get finally to the real meat and potatoes and most interesting and most important part of this 
+video in my opinion, which is how can legacy programs use special access programs to completely wave any 
+carveout or reporting requirements and maintain total secrecy? Because this, after all, if we're studying the 
+legacy programs in the modern day, is the whole crux and most important piece of this video. Dave Gusher's Judi 
+Judicial Watch interview is sublime. It's probably the best interview I've ever seen on the topic. It's fantastic. 
 
-And Dave Gush gave so many nuggets not only to kind of shout out that the National Security Council's 5412 committee with five initial members was sort of the initial program coordinator for the legacy structure, but so much more. Dave talked about some of the tricks of the trade that have been used by the programs and that's to take covert action programs which are outlined by 50 US code 3093. The 3093 specifically was established in the late sorry early 1990s. But covert action goes way deeper. Covert action was born kind of officially out of the 1947 National Security Act and and cemented in the 1954 policy on covert action by Eisenhower which established the 5412 committee and its special group.
+And Dave Gush gave so many nuggets not only to kind of shout out that the National Security Council's 5412 
+committee with five initial members was sort of the initial program coordinator for the legacy structure, but 
+so much more. Dave talked about some of the tricks of the trade that have been used by the programs and that's 
+to take covert action programs which are outlined by 50 US code 3093. The 3093 specifically was established 
+in the late sorry early 1990s. But covert action goes way deeper. Covert action was born kind of officially 
+out of the 1947 National Security Act and and cemented in the 1954 policy on covert action by Eisenhower which 
+established the 5412 committee and its special group.
 
 The 5412 committee was established to have oversight and purview of covert actions. So, inherently as I stated that if you have UFO legacy programs operating out of the National Security Council's 5412 committee special group which is true these activities would inherently be classified as covert action. As the epochs evolved these activities would be applicable under covert action programs as 50 US code 3093. So, as Dave Grush said, these covert action programs were transitioned into non-covert action programs, White House SAPs, which effective effectively waved all reporting and carveout requirements.  The the most important part of this video is how do you take a White House SAP title 10 US code 119 a slash a covert action program 30 US code  50 US code 3093 and how do you get this program to operate in the gray area between title 10 and title 50 with no reporting and no carveout requirements. 
 
 There's so many pieces that if you've watched any of my other videos, you can kind of pick up on this, but this is the application of contentonly SAPs. Contentonly SAPs are not a type of SAP nor a protection level, but a budgetary tier/administrative designation. contentonly SAPs contain CPI critical program information only and do not have a budget or do not have an applicable budget because it is rolled into generic DoD armed forces or other defense related budgets. This is critical. This is why one of the biggest talking points is how are these programs funded? There's so much talk about misappropriation of funds. The legacy programs have had to get ultra creative with funding schemes because the budget is outside of the program. The budget is outside of the program. We know and and these contentonly SAPs can still operate within a SAP umbrella or towards the top of a SAP umbrella where other activities compartments etc are below the contentonly SAP. 
 
-So the actual crash retrieval operations reverse engineering are not done within the contentonly SAP or content only SAP umbrella but are attributable to that SAP. So that's why we have haircuts across programs. That's why we have self-fund from agency cutout activities formerly like e systems. That's why we have haircuts across the US forestry service, bureau of land management etc. And that's why disturbingly we have criminal enterprises that Dave Grush spoke of on Fox News. I have had the displeasure of learning a little bit more about those. And I really hope there is a continued federal investigation into some of the u criminal enterprise activities around these projects. 
+So the actual crash retrieval operations reverse engineering are not done within the contentonly SAP or content 
+only SAP umbrella but are attributable to that SAP. So that's why we have haircuts across programs. That's why 
+we have self-fund from agency cutout activities formerly like e systems. That's why we have haircuts across the 
+US forestry service, bureau of land management etc. And that's why disturbingly we have criminal enterprises 
+that Dave Grush spoke of on Fox News. I have had the displeasure of learning a little bit more about those. And 
+I really hope there is a continued federal investigation into some of the u criminal enterprise activities around 
+these projects. 
 
-And then of course we know from witness ed there's large swaths of money that reach Air Force acquisition and before any sort of review from Air Force Financial Management SAF FM are thrown away into some black hole pot that Ed kind of figured was a joint air force and NRO project. So contentonly SAPs this is one of the biggest tools of the trade. And guys this speaks to something which is far more concerning. Some of my contemporaries, I know Steven Greer does this quite a bit, states the legacy program apparatus is a cabal of illegal activity and are inherently unconstitutional. So everybody who signed a non-disclosure agreement at the behest of these special access projects, he calls them. They're not the the NDAs inherently aren't real and you can violate them and there's no legal ramifications. That is not true. The biggest concern here is that the regulatory and statutory authority behind the legacy programs are absolutely legal. 
+And then of course we know from witness ed there's large swaths of money that reach Air Force acquisition and 
+before any sort of review from Air Force Financial Management SAF FM are thrown away into some black hole pot 
+that Ed kind of figured was a joint air force and NRO project. So contentonly SAPs this is one of the biggest 
+tools of the trade. And guys this speaks to something which is far more concerning. Some of my contemporaries, 
+I know Steven Greer does this quite a bit, states the legacy program apparatus is a cabal of illegal activity 
+and are inherently unconstitutional. So everybody who signed a non-disclosure agreement at the behest of these 
+special access projects, he calls them. They're not the the NDAs inherently aren't real and you can violate 
+them and there's no legal ramifications. That is not true. The biggest concern here is that the regulatory and 
+statutory authority behind the legacy programs are absolutely legal. 
 
-They exist in a gray area. They exist because of massaging of the special access program enterprise and control and governance structure. And they exist because of classified presidential executive orders back in the 40s and 50s. But the very SAPs themselves are not illegal. They're not they are uncon unconstitutional but not illegal. Now, the activities that these  programs and special access programs and activities do, those are highly illegal. The misappropriation of funds, the possible blue-on-blue action that has been suffered in the past, the myriad white and blue collar crimes, those are illegal. But the very existence of the programs themselves, those are not illegal because there has been purposefully sought after gray areas in which to hide these programs. 
+They exist in a gray area. They exist because of massaging of the special access program enterprise and control 
+and governance structure. And they exist because of classified presidential executive orders back in the 40s 
+and 50s. But the very SAPs themselves are not illegal. They're not they are uncon unconstitutional but not 
+illegal. Now, the activities that these  programs and special access programs and activities do, those are 
+highly illegal. The misappropriation of funds, the possible blue-on-blue action that has been suffered in the 
+past, the myriad white and blue collar crimes, those are illegal. But the very existence of the programs themselves, 
+those are not illegal because there has been purposefully sought after gray areas in which to hide these programs. 
 
-These programs have matured for 80 plus years at this point. You got to think there have been really crafty ways to hide this pro these programs and and the statutory authority behind these programs between title 10 title 50 authorities so that even empowered investigators like Dave Grush when they find the programs and they take their information to the inspector general it's going to be really dang hard for individuals with appropriate access credentials to follow up on that information. These programs have gotten great at secrecy and like I talked about even though over the time epochs the programs have broken themselves apart from a once centralized effort under NSE 5412 special group into a quasi industry government and control group. The one thing that has gotten better is the secrecy apparatus of the programs. 
+These programs have matured for 80 plus years at this point. You got to think there have been really crafty 
+ways to hide this pro these programs and and the statutory authority behind these programs between title 10 
+title 50 authorities so that even empowered investigators like Dave Grush when they find the programs and 
+they take their information to the inspector general it's going to be really dang hard for individuals with 
+appropriate access credentials to follow up on that information. These programs have gotten great at secrecy 
+and like I talked about even though over the time epochs the programs have broken themselves apart from a 
+once centralized effort under NSE 5412 special group into a quasi industry government and control group. 
+The one thing that has gotten better is the secrecy apparatus of the programs. 
 
-We face brain drain today. There's no collaboration across compartments. North Grumman's doing their own thing. I mean they're still active in some NSC legacy activities, but for all in in large they're doing their own thing. We're at risk of severe brain drain. Has progress stagnated? I'm not sure. If progress has stagnated, it would be post 2009 when Dick Cheney left office.
+We face brain drain today. There's no collaboration across compartments. North Grumman's doing their own thing. 
+I mean they're still active in some NSC legacy activities, but for all in in large they're doing their own thing. 
+We're at risk of severe brain drain. Has progress stagnated? I'm not sure. If progress has stagnated, it would 
+be post 2009 when Dick Cheney left office.
 
-But what needs to happen alongside disclosure is a complete reorganization of oversight in the legacy program hierarchy. Imagine the brain power behind this program set if it was completely constitutional, above board, sure, still protected by waved use, but still reported to appropriate gang of eight congressional intelligence committees, etc., and had presidential overview. This could be the dawn of a new age for US science, technology, space programs. But these programs need to be back under traditional oversight channels. 
+But what needs to happen alongside disclosure is a complete reorganization of oversight in the legacy program 
+hierarchy. Imagine the brain power behind this program set if it was completely constitutional, above board, 
+sure, still protected by waved use, but still reported to appropriate gang of eight congressional intelligence 
+committees, etc., and had presidential overview. This could be the dawn of a new age for US science, technology, 
+space programs. But these programs need to be back under traditional oversight channels. 
 
 And it's not impossible, but it's very challenging because ever since I mean the dominoes were kind of put in place when the program was relegated to NC 5412, but really since Reagan in the early 1980s once yellow fruit was uncovered, these programs have been scattering, folding in on themselves, I like to kind of visualize this is there's some string physicists who were creating objects shapes to kind of represent the manifold of like 11thdimensional space. I'm not sure who the physicist was, and I'm not sure where to find these objects. But that's how I imagine the legacy structure. Something infinitely more complex than a a test or a Mobius cube consistently folding in on itself, expanding and contracting in various areas where you might be able to look at the surface area of one part of the program, but it's constantly evolving. And, you know, I've done my best to try and capture that evolution throughout this throughout this series, but there's
 still so much more to cover. I'm going along on my rant, guys. We haven't even gotten to program protection agencies, but I've talked about those so much, especially the SID or narrative/disinformation control. 
